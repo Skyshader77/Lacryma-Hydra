@@ -20,7 +20,8 @@ a single time?
 
 _The purple born and their eccentricities_ thought Nix.
 
-She removed her handmaiden clothes and put on the gown.
+She removed her handmaiden clothes and put on the gown, delighting in its 
+tender fabric.
 
 Before her stood a girl who dreamed to become a princess. For this one night, Nix 
 would grant that girl's wishes. 
@@ -90,21 +91,67 @@ entertained this...habit of yours?" said Nix.
 
 "Ever since my eleventh's summer, my Lady."
 
-The sound of boots clattering in the corridor alerted her. Majorian gasped as her hands dragged him under Livia's bed. His breath was pressed against her left hand. She smelled one of Livia's pomegranate flagrances on him. His tastes were arguably poorer than hers.
+"Let me venture a guess, you began with your mother's clothes first. She did not take kindly to it, did she?"
+
+"My mother never understood my nature."
+
+"And your father? The Magister Militum Narcissus?"
+
+"He would murder me himself if he knew."
+
+"The Known World will never understand us. It is sad."
+
+Majorian's eyes peered at the crown Nix was wearing.
+
+"My Lady fancies a throne?"
+
+Nix blushed. What would he want as an answer? The answer was obvious to her. 
+
+"An Elysian on the Medean throne? You speak about fairy tales," said Nix.
+
+"Fairy tales can come to pass. You have heard the prophecy."
+
+_An Elysian will rule the Known World_ thought Nix, a fantasy all Elysian monarchs 
+believed in for the past three centuries. It poisoned their bloodline, causing 
+them to wage war against the Medean Empire. All imagined themselves to the one 
+who would seize Thanatopolis.
+
+"They are fairy tales because reality is a cruel mistress," said Nix.
+
+"A mistress everyone weds."
+
+"Clever poetry. Would it please you to recite some for me?"
+
+The sound of boots clattering in the corridor alerted her. Nix scoured the room. Majorian gasped as her hands dragged him under Livia's bed. His breath was pressed against her left hand. She smelled one of Livia's pomegranate fragrances on him. His tastes were arguably poorer than hers.
 
 Two sets of boots entered the tiled floor. Nix deduced they were Excurbitores by the weight of their footsteps. 
 
 "I swore someone yelped here," said one Excurbitore with a thick Clovian accent.
 
-"Must have been rats," said a second Excurbitore.
+"Must have been rats," said a second Excurbitore with a Rauthengardian accent.
 
 "Inform the emperor that rat catchers will be needed."
 
-Their boots left the room. Nix and Majorian laid for minutes under the bed. 
+"We may need more than rat catchers. Two of our own have not returned in days."
+
+"Deserters. They left their gold in their quarters. We may seize it."
+
+The Excurbitores circled the room. "No, they were exploring the palace's underground. There is something lurking there, I tell you. We must scour 
+the place."
+
+"Your imagination runs wild. The turncloaks have left the city."
+
+"No, no, no, it is a monster. I can hear it slithering within the walls. It speaks to us. It whispers names."
+
+Their boots left the room. Nix and Majorian laid for minutes under the bed, 
+hearing their tense breathing. 
 They only extirpated themselves out of their hiding place once no sound could be 
 heard from the corridor.
 
 "Our lives could have been forfeited," said Majorian.
+
+That was an exaggeration. She could have always used magic to wiggle herself out of 
+peril.
 
 "There is beauty in danger," said Nix.
 
@@ -112,10 +159,14 @@ heard from the corridor.
 
 "You are a soldier, are you not? Do not lie to me. The thrill of danger arouses you."
 
+"Only the craven seeks violence."
+
+"Do not bore me with morality."
+
 His lips stood inches away from hers. Nix touched his warm hand. Sweat ran from his 
 forehead. Was today the day an Elysian handmaiden conquered a Medean prince? The Elysian poets would dissect this story until the end of times.
 
-"Are you sure?" he said.
+"Are you sure?" he said as colors rose in his face.
 
 "Only if you can keep a secret."
 
