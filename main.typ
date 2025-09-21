@@ -12,6 +12,9 @@
 #set par(spacing: leading)
 #set par(leading: leading)
 
+= Prologue
+#include "prologue.typ"
+
 = Chapter 1
 #include "chapter1.typ"
 
