@@ -9,9 +9,10 @@ Flavius waved his torch in the never-ending darkness. Arches decorated with gorg
 complement the city's aqueduct and possibly to murder those he deemed undesirable. 
 Flavius hoped that getting lost would not get him on the list of those Constantius had erased.
 
-"The child must be dead by now. Let us turn back, while we still remember the way we came in," said Theodore.
+"The child must be dead by now. Let us turn back, while we still remember the way we came in," said Theodore. The man had fought in more battles than Flavius' own age.
+At seventy summers, the older guard must have lived through the fall of the Tiarmat Empire in his youth. Flavius asked him numerous questions on that cataclysmic event, one that the Medean Emperor wished to reverse.
 
-"We must offer closure to the parents."
+"We must offer closure to the parents," said Flavius.
 
 "Let the Vigiles take care of the issue. This is no work for Excubitores."
 
@@ -49,18 +50,30 @@ Tunnel after tunnel appeared before their eyes. Left turn, right turn, forward. 
 
 "You mock me! We must keep moving!"
 
-Flavius' hair raised itself. Shivers crawled on his spine. Another corpse. An old woman. The same injury as before. 
+Flavius' hair raised itself. Shivers crawled on his spine. Another corpse. 
+
+It was the child that had disappeared. His tattered clothes struggled to cover the 
+bruises inflicted on him. The poor sod suffered the same fate as the 
+man from earlier. Flavius was old enough to remember the last time he saw a child's boy 
+in the streets of Thanatopolis. The plague of Anastasian had taken old and young to the 
+Gates of the Underworld. The ugly blemish on his cheek was a reminder of his triumph against the disease.
+
+An old woman floated next to the child. The same injury as before. 
 
 "The Goddess be damned! How many are there?" said Flavius.
 
 He should not have asked that question. A third body appeared, this time covered 
 in maggots. The smell of death permeated the stagnant air. 
 
-"A creature could not have done this," said Theodore.
+"A creature could not have done this," said Theodore. Flavius nodded in agreement.
+
+"You are correct. A crocodile's meal can last for weeks."
 
 "Who else then?"
 
-"A butcher of men..."
+Theodore rummaged through his beard styled in the manner of the Rauthengardian nobility.
+
+"A butcher of men..." said Flavius.
 
 "That is good news."
 
@@ -82,7 +95,11 @@ Elysian Vodrath Ansar and the Rauthengardian Hearthguards could compete with
 the best of the Empire's foot soldiers. 
 
 Theodore went on ahead, vaulting over the corpses. Flavius followed suit. 
-It was not his intent to spend a night in this murderer's haven. 
+It was not his intent to spend a night in this murderer's haven. They would drag 
+the vermin's hide from his den and expose his vile deeds to the populace.
+If they were lucky enough, the Emperor would grant them a public execution. 
+Flavius' blood grew excited at the thought of seeing the butcher of men's head 
+fly across the Hippodrome. The Medean crowd's applause was bliss to his ears.
 
 A screeching hiss interrupted their run. Flavius froze, his legs struggling to obey 
 his mind. In front of them stood a mockery of a human head attached to a long neck.
@@ -90,7 +107,10 @@ The thing extended its seemingly human tongue towards them.
 
 His grandmother had told him the tale of the Hydra, this being the Magi had created 
 for their wars during the Age of Magic. It could not be true. The Age of Magic had 
-ended a millennium ago.
+ended a millennium ago. All Hydras should be extinct.
+
+Flavius' lance shook uncontrollably in his hands. The unmistakable sign that magic had 
+returned stood before his very eyes. 
 
 "For Emperor Ralens!" bellowed Theodore as he threw his spear at the creature. It caught the projectile with its teeth which now imitated a human sneer. Bloodthirsty 
 and intelligent were the two attributes you did not want in a predator.
@@ -108,14 +128,23 @@ The Apocalypse dawned on mankind. He had to tell his wife and children.
 
 "I am coming! I am coming!"
 
-Flavius turned away from Theodore. His legs carried him away from the duel. 
-Behind him, steel collided with teeth. 
+Theodore unsheathed his sword. He hacked the abomination's head. Blood splattered on 
+Theodore's chainmail armor. A strident whistling erupted from the lump that became the monster's head. Flesh sprouted from the morbid injury. Two new heads emerged. Theodore 
+cursed. _Mother help me_, thought Flavius.
+
+"Flavius! Get your arse over here at once!"
+
+"Yes!"
+
+Flavius took a step forward before turning away from Theodore. His legs carried him away from the duel. 
+Behind him, steel collided with teeth. It was not the duty of men to face this vile 
+creature.
 
 Flavius reared his head. Blood seeped from Theodore's upper torso. The Hydra 
 picked the Excubitores with its tentacles. Theodore's legs flailed helplessly.
-His helmet fell in the bloodied waters. The beast opened its human mouth and bit 
-its prey's head.
+His helmet fell in the bloodied waters. A loud crunch reverberated through the sewer's corridors. Bone snapped. The beast opened its human mouth and bit 
+its prey's head. Theodore's headless torso fell in the waters.
 
-Flavius screamed. He ran into utter blackness.
+Flavius screamed. He ran into utter blackness, crying out the Goddess' name.
 
 

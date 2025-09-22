@@ -31,6 +31,11 @@
 #include "chapter6.typ"
 = Chapter 7
 #include "chapter7.typ"
-
 = Chapter 8
 #include "chapter8.typ"
+= Chapter 9
+#include "chapter9.typ"
+= Chapter 9
+#include "chapter10.typ"
+= Chapter 10
+#include "chapter11-0.typ"
