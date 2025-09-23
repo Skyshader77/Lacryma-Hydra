@@ -1,5 +1,8 @@
 She found Ralens throwing rocks atop the walls of Thanatopolis. Winds howled. 
-Majorian stood guard. Both Scholae Palatinae and Empire wore plain tunics.
+He wore an all purple and crimson chiton patterned with flying phoenixes and 
+roaring dragons, the crown of phoenix feathers on his head.
+Majorian and seven other Excubitores stood guard. It was the first time she saw him dressed like a man, encased 
+in chainmail with an ornate helmet. 
 A red moon shone over the North Sea. Dromons and quinqueremes sailed through the night
 towards the capital's lighthouse. Their numbers had more than doubled since last year.
 
@@ -50,6 +53,59 @@ A title for herself only. Baba would be proud of her and so would Serena.
 "May Serena join in?"
 
 "The Magister Sacra Vestis may enlist others as they see fit."
+
+They walked down the stairs from the Marroan Walls. As Magister Sacra Vestis, Nix 
+would be the conductor of Livia's wardrobe. It was she who would weight on which shade of purple the princess would wear as her daily attire. It also legitimized her hobby of borrowing Livia's sumptuous clothes. She could not wait. The next public appearance for the princess was to be during the arrival of the new Cardinal. There, Medean 
+tradition had her wear a swan white dress similar to the Faith's colors.
+
+"Your August Majesty!" cried a distressed woman at the end of the stairs. 
+A small gathering of townfolk had congregated around the Excubitores. 
+
+"Please, the Emperor is tired. He must return to the palace," said Majorian.
+
+"No, let him listen. This seems worth his time. Speak, citizen" said Nix. Ralens nodded in agreement.
+It was a fantastic opportunity to paint him as a man of the people.
+
+"A monster lives in our well. It took my boy!" said the woman.
+
+"It took my sister and her husband!" said another man.
+
+"The Vigiles were of no help! Help us, your August Majesty!"
+
+_Again with this story. What are they eating?_ thought Nix.
+
+"There are no monsters in Thanatopolis," said Nix.
+
+"Yes! I saw it! With my own two eyes! It dwells in the sewers! Please, your August Majesty, you must help us!"
+
+The crowd prostrated itself before Ralens. The fact that so many believed in the same
+superstition unnerved Nix. A monster living in the sewers? Was this another of the Faith's lies?
+
+"Show me the well," said Ralens.
+
+Nix pulled him asides.
+
+"Are you sure, this is better left to the Excubitores," whispered Nix.
+
+"The same we hanged a month ago? Were they not screaming about a monster as well?"
+
+"Remember Claradore's teachings. The Faith invents monsters out of their arses."
+
+"I will see the well."
+
+Nix bowed. Ralens entered his litter. Their procession snaked around Charov's Aqueduct, passing through 
+self-proclaimed oracles who pretended to see the end of times. Nix and Majorian 
+waved away the hordes of merchants wanting to present their wares to the Emperor.
+
+_The Emperor graces you with his presence! Please grant him away,_ thought Nix as she yelled those same words to navigate through the sea of humans that was the imperial capital.
+
+"The Empress will be sleeping in Domitian's villa tonight," said Majorian with a 
+wide grin on his face.
+
+"We can continue playing our little game," said Nix.
+
+For the past weeks, they had practiced dancing as if they were the guests of honors in a ball. She practiced doing pirouettes in his wide arms. Clothed or not, they 
+
 
 Spartak barked ferociously. She saw too late the tentacle emerge from the well. It grabbed the Emperor. Ralens yelled. Majorian let out profanities. The tentacle dragged its captive towards the hole. The Scholae Palatinae dropped his shield and lance. His hands seized the monster's appendage. In an instant, his body barreled down the darkness.
 
