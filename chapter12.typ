@@ -104,8 +104,25 @@ wide grin on his face.
 
 "We can continue playing our little game," said Nix.
 
-For the past weeks, they had practiced dancing as if they were the guests of honors in a ball. She practiced doing pirouettes in his wide arms. Clothed or not, they 
+For the past weeks, they had practiced dancing as if they were the guests of honors in a ball. She practiced doing pirouettes in his wide arms. Clothed or not, they felt their bodies coalesce in warmth. At the junction of their movements, they discovered 
+how similar and dissimilar their heartbeats were, how one's tempo while dancing conveyed their state of mind. She embraced serenity in her gestures while his professed this orderly chaos typical of men who served in the army.
 
+Ralens' litter arrived at the well, this hole surrounded by effigies of the Goddess. 
+Nix restrained herself from laughing. Surely the citizens were making a farce. A monster living in a well? If it was magical, she and Claradore would have known of its existence by now. 
 
-Spartak barked ferociously. She saw too late the tentacle emerge from the well. It grabbed the Emperor. Ralens yelled. Majorian let out profanities. The tentacle dragged its captive towards the hole. The Scholae Palatinae dropped his shield and lance. His hands seized the monster's appendage. In an instant, his body barreled down the darkness.
+Spartak growled at the well. It stood on its four legs, glaring at the structure.
+
+"What is wrong?" asked Nix.
+
+The Emperor disembarked from his carriage. He advanced towards the well. Spartak's barks grew louder and louder. 
+
+"Hold, the water may be poisoned," said Nix. It was the only logical explanation for 
+her dog's behavior.
+
+"I will not be drinking," said Ralens. He peered into the opening. 
+"There is nothing here."
+
+"Send an alchemist here. The water must be foul. Perhaps a Faithful put their waste in it," said Nix.
+
+Ralens grimaced and turned away from the well. Spartak barked ferociously. She saw too late the tentacle emerge from the well. It grabbed the Emperor. Ralens yelled. Majorian let out profanities. The tentacle dragged its captive towards the hole. The Scholae Palatinae dropped his shield and lance. His hands seized the monster's appendage. In an instant, his body barreled down the darkness.
 
