@@ -1,4 +1,4 @@
-She found Ralens throwing rocks atop the walls of Thanatopolis. Winds howled. 
+She and Spartak found Ralens throwing rocks atop the walls of Thanatopolis. Winds howled. 
 He wore an all purple and crimson chiton patterned with flying phoenixes and 
 roaring dragons, the crown of phoenix feathers on his head.
 Majorian and seven other Excubitores stood guard. It was the first time she saw him dressed like a man, encased 
@@ -38,19 +38,34 @@ she could swipe a great deal out of his proposition.
 Ralens made a mischievous smile.
 "Are you sure? I know you fancy borrowing her clothes."
 
-Nix blushed. She glared at Majorian. The Scholae Palatinae turned his eyes away.
+Nix froze. She glared at Majorian. The Scholae Palatinae turned his eyes away.
+
+"I thought you could keep a secret!" said Nix.
 
 "I-I-I swore an oath to the Emperor!" said Majorian.
 
-"Rest assured, I do not mind your eccentricities. In fact, your proximity to Livia will be of great use. All of Livia's thoughts and actions must be reported to me," said Ralens.
+Nix cursed. She should have expected no less from a man who reported directly to the 
+Emperor himself.
+
+"What punishment will I receive?". She had to assume the worst case scenario:
+Livia was informed.
+
+"Rest assured, I do not mind your eccentricities. 
+In fact, your proximity to Livia will be of great use. 
+All of Livia's thoughts and actions must be reported to me," said Ralens.
+
+Nix breathed a sigh of relief. Her days were not yet numbered it seemed.
 
 "I trust I will be well compensated for this," said Nix.
 
 "Of course, I will create a title for you, the Magister Sacra Vestis."
 
 A title for herself only. Baba would be proud of her and so would Serena.
+While not as eloquent as Magister Militum, having people address her as 
+Magister Sacra Vestis was delight for her ears. Her first order of action would be 
+to force Serena to refer to her by that title only.
 
-"May Serena join in?"
+"May Serena join in?" said Serena.
 
 "The Magister Sacra Vestis may enlist others as they see fit."
 
@@ -85,7 +100,7 @@ superstition unnerved Nix. A monster living in the sewers? Was this another of t
 
 Nix pulled him asides.
 
-"Are you sure, this is better left to the Excubitores," whispered Nix.
+"Are you certain? This rumor is better left to the Excubitores," whispered Nix.
 
 "The same we hanged a month ago? Were they not screaming about a monster as well?"
 
@@ -93,7 +108,8 @@ Nix pulled him asides.
 
 "I will see the well."
 
-Nix bowed. Ralens entered his litter. Their procession snaked around Charov's Aqueduct, passing through 
+Nix bowed. Ralens entered his litter. With Spartak leading the front, 
+their procession snaked around Charov's Aqueduct, passing through 
 self-proclaimed oracles who pretended to see the end of times. Nix and Majorian 
 waved away the hordes of merchants wanting to present their wares to the Emperor.
 
@@ -124,5 +140,25 @@ her dog's behavior.
 
 "Send an alchemist here. The water must be foul. Perhaps a Faithful put their waste in it," said Nix.
 
-Ralens grimaced and turned away from the well. Spartak barked ferociously. She saw too late the tentacle emerge from the well. It grabbed the Emperor. Ralens yelled. Majorian let out profanities. The tentacle dragged its captive towards the hole. The Scholae Palatinae dropped his shield and lance. His hands seized the monster's appendage. In an instant, his body barreled down the darkness.
+Ralens grimaced and turned away from the well. Spartak barked ferociously. 
+
+"It is just poison, Spartak. The alchemist will purify the water by the next sunset,"
+said Nix.
+
+
+She saw too late the tentacle emerge from the well. A matrix of suction cups 
+grabbed the Emperor. Ralens yelled. 
+Majorian let out profanities. 
+The tentacle dragged its captive towards the hole. 
+The Scholae Palatinae dropped his shield and lance. 
+His hands seized the monster's appendage. Nix rushed to grab Majorian's legs. Spartak tugged the hem 
+of her dress.
+The weight of his armor threatened to rip apart her shoulders. Her nails clawed at 
+his boots.
+
+_Was that an octopus?_ thought Nix. If only Claradore could be here at this very moment. 
+His musculature would be a great asset in this trying time.
+
+The creature pulled, slamming her head against the well. 
+Her hands slipped. Nix swore. In an instant, Majorian's body barreled down the darkness.
 
