@@ -40,7 +40,8 @@ for a promenade through the sewers. And what if this thing was his pet?
 
 _He would have told me,_ thought Nix.
 
-"IIII waaaaant youuuuuuu, Maaa-aaaa-aaa-g-iii-iiii-iiii," taunted the thing.
+"IIII waaaaant youuuuuuu, Maaa-aaaa-aaa-g-iii-iiii-iiii," taunted the thing in 
+what appeared to the Forgotten Tongue.
 
 "Show your ugly visage first," said Nix.
 
@@ -57,4 +58,41 @@ This rogue beast needed to be reminded who its masters were. Once it was tamed, 
 possibility of harnessing its power for the Red Guild was all too tempting. Claradore 
 could send it to Metarexia where it could have a buffet beneath the Octine Cathedral. 
 
-Behind her stood a dead end.
+It attacked first, sending one of its vile heads forward. Too slow. Her blood blade 
+cleaved it in half. The second head came next. She felt her hand slice through its
+cartilage. Its blood tasted foul unlike a human's. The heads fell in the waters.
+
+"So you understand the Forgotten Tongue. Release the Emperor at once and your life 
+will be spared," said Nix.
+
+The Hydra made a parody of a laugh.
+
+The stumps that became the heads 
+retreated. Blood and bones bulged from the injuries. To her horror, flesh arose from the decapitated sections. It blossomed akin to a fetid flower. Four new 
+heads emerged. 
+
+Spartak joined the melee, gnawing at one head. The Hydra wailed, sending her dog 
+flying in the air before smashing it down with a tentacle. She tried to reach 
+Spartak. A wall of hideous heads obstructed her. Nix kept on slashing. Something 
+bit her leg. She screamed. One of the Hydra's visages crunched her heel, lifting 
+her up in the air. 
+
+"Nooooooooot scaaaaaaaaaaaaryyyyyyyyyy," taunted the thing.
+
+She liquefied her leg, freeing herself from its grip. Venom. It had entered her body.
+Nix spun around herself, her blood swords forming a wheel of serrating blades. 
+She threw herself against the thing, pressing her arms against its swarm of heads.
+Tentacles, appendages and heads were propelled in the air. The creature roared in pain.
+
+_At least it knows pain,_ thought Nix.
+
+The assault had to continue. She had the initiative and any tactician agreed that losing it was a mistake. Blood splattered on her face. Her blood blades tore through bones and flesh alike. She lost count of the number of heads she had cut of. How many 
+did this creature possess? The books only mentioned Hydras with 5-6 heads. This one had more than thrice that number.
+
+A searing pain in her abdomen stopped her carnage. A mixture of green and black fluid 
+glowed in her veins. Her right leg grew numb. The poison. Within hours no minutes, she would not be able to run anymore. Claradore would know what to do. 
+
+In front of her, more heads sprouted from the thing's severed organs. It was a futile endeavor. She needed fire. A lot of it. To her knowledge, a Hydra of this size must have at least eighty heads. A conservative estimate would be that its body took up the 
+entirety of the sewers. Not even a legion could dislodge it.
+
+She looked behind her. A dead end greeted her.
