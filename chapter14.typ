@@ -83,6 +83,10 @@ Nix' torso, legs and feet followed her right hand. She felt her head melt before
 
 Livia's eyes opened themselves. Her body boiled. Toes, fingers, tendons, shoulders, everything ached and burned. Livia had never felt this sensation. Empty air escaped her mouth. #emph[What is going on?];. Help. She had to call a handmaiden. None of her muscles responded. Outside, the moon shone, casting a malefic light on her still body. Livia did not understand. Why couldn’t she move?
 
+The last thing she remembered was the deranged handmaiden that dared to wound her. 
+Death was too kind for that one. For all Livia knew, her assailant 
+was an Elysian spy.
+
 Blood. This smell overwhelmed her nose. #emph[Is someone hurt? Am I bleeding?] Yet it was not just blood in the air. An unpalpable, almost undetectable flagrance. Ancient and pernicious through its elusiveness. All of her senses were trying to identify this scent which they should know.
 
 Her back raised itself. Something like a whip lashed at it. She did not give that order. Her fingers cracked themselves. It felt they had doubled in weight. In fact, her entire body seemed to drag this unseen mass or boulder behind it. #emph[What in the Goddess’ name is happening?] Her body brought her hands before her eyes. Her right hand touched her left hand’s palm. A foreign tingling shook her entire being as if it was the first time her body had touched that area. #emph[Stop!] Akin to a petulant child, her hands went to her waist, her shoulders and then her cheeks, pressing their palms against her skin. A tidal wave of unknown sensitivity struck Livia’s nerves. Never had she imagined her own body to be this reactive to her own touch. It did not make any sense.
@@ -131,7 +135,48 @@ The night could not worsen further. Something cawed. A crow with a bald human he
 
 The bird-thing bit an apple with its human lips. "My dear, even Baba could not possibly envision what you have just done. What are you going to do next?"
 
-Her body placed a finger on her mouth. "Shhh. I just noticed. She can still hear us."
+"There is a Hydra dwelling underneath of us."
 
-"My my, so the spell has not been perfected yet. What a shame."
+"I am aware."
 
+"And you have never told me?"
+
+"I did not think the Emperor would care for it."
+
+"And yet the Hydra took the Emperor. He may have crossed the Gates of the Underworld already."
+
+"The Emperor lives."
+
+Livia felt one of her eyebrows arch.
+
+"How?" said the demon wearing her skin.
+
+"The Hydra needs him. He is bait for us Magi."
+
+"So it grants us time."
+
+"Time we should exploit to its fullest, my dear."
+
+Her body placed a finger on her mouth. "Quiet. She hears us still.."
+
+"My, my, so the spell has not been perfected yet. What a shame."
+
+"I will rectify this mistake."
+
+Livia felt her body convulse. She crumbled to the ground, shaking with increasing folly. She screamed, this time sound erupting from her vocal chords. #emph[Free! I am free!] Her eyes teared up as a grotesque swell was forming on
+her left cheek. It had the texture of a foul egg. A human face hatched from it. It was the handmaiden that assaulted her, the one who had the gall of wearing her clothes.
+The second visage, this cancerous spawn that desecrated her flesh, sneered.
+
+"We meet again, Empress."
+
+"You! Get out of me!"
+
+"It is time for you to sleep, Empress, permanently," said the handmaiden.
+
+"What do you want, fiend?"
+
+"Have you not guessed it? Your will must follow mine."
+
+"You repulsive thing, you cannot claim to control me," said Livia.
+
+The vile bulge disappeared, but another formed within her throat. It began as small as a pear. A searing pain consumed her neck as more and more blood flowed towards the horrible protrusion, swelling it to the size of a melon. #emph[I can’t breathe.]. The taste. It felt she tasted every member of the human body concentrated in a vile juice. Never had she gagged as much as she did. Her eyes fluttered. The last thing they saw was the bird-thing departing from her window. Her world went black.
