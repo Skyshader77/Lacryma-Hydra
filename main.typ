@@ -12,6 +12,12 @@
 #set par(spacing: leading)
 #set par(leading: leading)
 
+#let scene-break() = {
+  v(1em)
+  align(center)[⁂]
+  v(1em)
+}
+
 = Prologue
 #include "prologue.typ"
 
