@@ -56,4 +56,6 @@
 = Chapter 16
 #include "chapter13.typ"
 = Chapter 17
+#include "chapter13-1.typ"
+= Chapter 18
 #include "chapter14.typ"
