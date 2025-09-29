@@ -128,7 +128,18 @@ She tried reforging a blood blade. Her arm refused her command. The blood filame
 failed to converge. Nix cursed. To lose because of attrition to an animal of all things. 
 
 The innumerable heads stared at both her and Spartak. They gloated with their satire of a smile. It was a futile endeavor. She looked behind her. A dead end greeted her.
-
-Nix needed fire. A lot of it. To her knowledge, a Hydra of this size must have at least eighty heads. A conservative estimate would be that its body took up the 
+Fire. Nix needed fire. A colossal amount of it. To her knowledge, a Hydra of this size must have at least eighty heads. A conservative estimate would be that its body took up the 
 entirety of the sewers. Not even a legion could dislodge it.
+
+The poison's throbbing pain consumed her right leg. It burned as if a thousand fire ants had bit her lower body. Nix crumbled to the ground. 
+Spartak barked with alarm. The Hydra licked its teeth. Had she made a mistake? 
+She had let her affection for Majorian dictate her actions, ignoring reason 
+and tactical soundness. In a fairy tale, this would have guaranteed victory. Love after all was the most powerful magic of them all. However, life was never a fairy tale. There was no one to come to your rescue. People only existed to be stepped on 
+to build a ladder for success.
+
+The Hydra bore down dozens of heads. Nix closed her eyes, embracing the extent of her errors. 
+
+_Wait for me, Baba,_ thought Nix.
+
+Her reunion with Baba would have to wait. A beam of light engulfed the dozens of heads, disintegrating them.
 
