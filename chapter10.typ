@@ -4,7 +4,7 @@ It had been easy to say from the throne, this seat Claradore had gotten accustom
 
 "Do you think Claradore will do it?" asked Serena as they walked in the colonnaded street carving the Studion in two. Merchants tempted Nix’ nose with those lobster and shrimp dumplings she had gotten addicted to. Children enjoyed their innocence underneath Charov’s Aqueduct. Adults bickered over the racers who competed at the Hippodrome. Nix and Serena floated in this sea of mules, carts, oxen and people who called Thanatopolis their home.
 
-"Only the purple born may claim it."
+"Only the purple born may claim it," said Nix.
 
 "Or someone commanding the army."
 
@@ -92,6 +92,6 @@ Serena linked hands with Nix. Her fingers indulged in a myriad of acrobatics aro
 
 "What do you say, Phoenix Egg? You can’t live your entire life under the spider’s thrall."
 
-It had never occurred to her that Serena’s lips had never been so close to hers. Nix breathed heavily.
+It had never occurred to her that Serena’s lips had never been so close to hers. Nix breathed heavily. It was likely an illusion. Serena smiled, moving her face away from hers. 
 
-It was likely an illusion. Serena smiled, moving her face away from hers. Bells reverberated through the streets. Zastrian’s Cloister unleashed its own mechanical birds, launching their songs of sorrow and mourning. All citizens had stopped moving as if petrified by a gorgon’s stare. Children tugged at their parents’ tunics clamoring for explanations. Then came the Medean horns from the Palace Complex, the lowest frequency in the Known World. The occasion was evident. The Emperor was dead.
+Bells reverberated through the streets. Zastrian’s Cloister unleashed its own mechanical birds, launching their songs of sorrow and mourning. All citizens had stopped moving as if petrified by a gorgon’s stare. Children tugged at their parents’ tunics clamoring for explanations. Then came the Medean horns from the Palace Complex, the lowest frequency in the Known World. The occasion was evident. The Emperor was dead.
