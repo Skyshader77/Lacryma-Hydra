@@ -13,6 +13,11 @@ Dusk fell in the capital. The curious children that had agglomerated around the 
 Serena eagerly awaited the performance her two actors would present. But first, her treasure had to be secured. She spread her wings. Perhaps today was the day she would become a prince 
 for Nix and rescue her princess from the Hydra's lair. Nix was a star that radiated its light in the universe's endless nothingness. While wearing Livia's garments, Nix transformed into a supernova that could outlast the end of time and space. Never had the temptation of planting her lips into Nix's had been so difficult to resist. Nix, the reincarnation of her own sister that she had betrayed, now offered her the ultimate chance at redemption.
 
+Her discontentment was immeasurable when she witnessed Nix' legs intertwining with 
+Majorian's in Livia's room, both taking pleasure in dressing in the princess' robes. Instead of loving a woman who took indulged in wearing a prince's clothes, Nix chose to engage in an escapade with a man who wore a princess' stola. Life of course would be unsatisfactory should it be simple and grant Serena all what she queried for.  
+
+The screaming children of Thanatopolis brought her back to reality.
+
 Serena dived head first into the same well that had swallowed Nix, Majorian and the Emperor. 
 
 She found herself before a simple map of arched corridors and waterways. Unlike the sewers of the Age of Magic, there were no intricate fountains, glowing moths that purified the waters, no intersection with more than eight passages. Children of the Magi could once play within these structures. Visibly, that charm had been lost in the modern age.
@@ -27,5 +32,78 @@ But no plan survived the first contact with the shield wall, her thing had taste
 Serena walked on the current, letting the screams guide her. She espied Nix's sublime display of artistry. Serena sat down. Every one of Nix' stroke painted a canvass of blood that tore through the Hydra's bones and flesh. Magis infused their hearts and soul into their fighting style. It was this tantalizing work of art that all of the Magi's literature captured every detail with minutiose attention.  This was what the fairy tales of old spoke about, a legacy Serena had been keen to erase in her youth.
 
 Serena noticed the blackish green taint on Nix' lower body. She grinned. A rescue was needed. How would she write the scene? She could not embark on a horse in scale armor and ride against the monster with a lance. Life was not a fairy tale. Nix would collapse momentarily from the poison's effects. In that instant, Serena would intervene, one of her first actions in more than a century. Every bone, tissue and skin pore craved for this moment. She laughed. Only Magi could have made her yearn for a longer life.
+
+Serena saw her princess falter. The time for the radiant prince had come. 
+She recited cants and enchantments of days past. Her body glittered in the darkness. 
+Warmth spread around her body, dividing itself into fireflies that lighted hidden tattoos. Levitating in the air, Serena hummed the Goddess' hymns.
+
+She sang, her voice birthing a pillar of light that crashed on the Hydra.
+The smell of roasted flesh now overwhelmed the sewers' fetid odor. 
+
+Serena emerged from her hiding spot. A chorus of barks from Spartak heralded her coming.
+
+"Foul thing, the prince of radiant dawn has come for thy!" bellowed Serena.
+
+"Mooooootheeeeeeeeeeer," said her hatchling. The Hydra's mass convulsed in agony. 
+New heads were incinerated as they tried to sprout from the burning flesh.
+
+"You have disobeyed me," said Serena.
+
+"Huuuuuuuuuuuuuuuuungryyyyyyyyyyyyyyyyy."
+
+"You were instructed to devour only Magi and animals."
+
+"Aaaaloooooone."
+
+"You are no longer a child. You serve only to kill that Magi."
+
+"Claaaaraaaaaaaaaadddddddddddddoooooooooooooooooooooooreeeeeeeeeeeee!"
+
+"Why have you not sought him?"
+
+"Scaaaaaaaaaaaaaaaaaarrrrrrrrreeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeed!"
+
+"Outrageous, you have ninety nine heads. Must I do everything by my lonely self?"
+
+Serena surveilled the battlefield. An opportunity presented itself in the form of 
+the unconscious Majorian. Would it be convenient if that boy disappeared?
+
+"You can devour that child," said Serena.
+
+"Maaaaggggiiiiiii. Want Maaaagggiiiiiiiiiiiii!"
+
+A swarm of heads and tentacles encircled her. Serena whisked her fingers. Her hatchling has forgotten the meaning of the word fear. This would not do. 
+
+She started another melody. Her vocal chords unleashed a crescendo of high pitched notes. Multiple pillars of lights tore through the Hydra's body. Her hatchling shrieked and shrieked as Serena uttered quarter note after quarter note. Animals and children were all the same. All could be disciplined with the use of magic or steel. 
+Enforcing discipline however had never been her greatest strength. She remembered how she had chastised Erfan for putting a rabid deer out of its misery. It had been many moons ago on the day the Gatekeeper took her husband. Erfan was only as tall as her shoulders back then. 
+
+"Why does the Gatekeeper take life away, Mother?" asked Erfan, her firstborn, coiled in her arms in the once lush and vast Regnassian gardens around Metarexia.
+
+"It is his burden to bear, my son. Many do not wish for life everlasting," said Serena.
+
+"Then why are we immortal?"
+
+"That is not a question you should be asking, my son."
+
+"But why? Should I not seek the truth?"
+
+She sighed. He was as intrusive as his father.
+
+"Blood was spilled so that you might know peace in this place."
+
+"The slaves say you killed all the Magi."
+
+"Nonsense, the Magi slayed themselves. They have committed many sins. I only did what honor demanded. I brought them all before the Gatekeeper so they could atone for what they done."
+
+"What have they done to deserve your wrath?"
+
+"They made me love my own sister."
+
+"The Brood Mother?"
+
+
+
+
+
 
 
