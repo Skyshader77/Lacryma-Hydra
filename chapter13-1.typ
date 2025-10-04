@@ -1,4 +1,8 @@
-Serena had seen the tentacle drag the Emperor down the abyss. Hydras could be reckless but this...This was an anomaly. She had watched from her perch the Excubitores Majorian grab the Emperor's leg, dragging himself and Nix into the well. If Nix had 
+The beautiful moon stood still, swallowing the despair that came with 
+losing her son. She had tainted Erfan's dreams because she had been arrogant.
+Her own immortality had prevented grief from decaying her soul.
+
+Serena saw the tentacle drag the Emperor down the abyss. Hydras could be reckless but this...This was an anomaly. She had watched from her perch the Excubitores Majorian grab the Emperor's leg, dragging himself and Nix into the well. If Nix had 
 not desired to become the heroine of the day, Serena would not have intervened. She had long decided that intervening in mankind's affair was a fruitless endeavor. 
 
 Bells tolled. Serena sat at the top of Zastrian's Cloister, deploying her white swan wings. A snowflake landed on her plumage, sending a pleasant chill down her aging body. Citizens and guards alike rushed to the well. 
@@ -22,7 +26,9 @@ Serena dived head first into the same well that had swallowed Nix, Majorian and 
 
 She found herself before a simple map of arched corridors and waterways. Unlike the sewers of the Age of Magic, there were no intricate fountains, glowing moths that purified the waters, no intersection with more than eight passages. Children of the Magi could once play within these structures. Visibly, that charm had been lost in the modern age.
 
-Her feet touched the weltering waters. Her toe made a ripple that played water as if it was a harp. Instead of plunging through the surface, she landed on liquid as if it was concrete. What would Nix have said if she knew Serena could race her flying form on foot? 
+Her feet touched the weltering waters. Her toe made a ripple that played water as if it was a harp. Instead of plunging through the surface, she landed on liquid as if it was grass. What would Nix have said if she knew Serena could race her flying form on foot? 
+
+Serena walked on water, feeling the current tickle her feet. 
 
 A battle brewed in the distance. Serena smelled the creature she had awakened. She had no choice. The Gatekeeper has riddled her with two Magis to thread with. The eldest one would be the most problematic. Claradore was a child that evoked both fear and admiration. The day would soon come that she would cross blood with him. She was no longer the slayer of Magis that had to be reckoned with. And so the best was required.
 
@@ -31,7 +37,9 @@ But no plan survived the first contact with the shield wall, her thing had taste
 
 Serena walked on the current, letting the screams guide her. She espied Nix's sublime display of artistry. Serena sat down. Every one of Nix' stroke painted a canvass of blood that tore through the Hydra's bones and flesh. Magis infused their hearts and soul into their fighting style. It was this tantalizing work of art that all of the Magi's literature captured every detail with minutiose attention.  This was what the fairy tales of old spoke about, a legacy Serena had been keen to erase in her youth.
 
-Serena noticed the blackish green taint on Nix' lower body. She grinned. A rescue was needed. How would she write the scene? She could not embark on a horse in scale armor and ride against the monster with a lance. Life was not a fairy tale. Nix would collapse momentarily from the poison's effects. In that instant, Serena would intervene, one of her first actions in more than a century. Every bone, tissue and skin pore craved for this moment. She laughed. Only Magi could have made her yearn for a longer life.
+Serena noticed the blackish green taint on Nix' lower body. She grinned. A rescue was needed. How would she write the scene? She could not embark on a horse in scale armor and ride against the monster with a lance. Life was not a fairy tale. Nix would collapse momentarily from the poison's effects. In that instant, Serena would intervene, one of her first actions in more than a century. Every bone, tissue and skin pore craved for this moment. She laughed. Only Magi could have made her yearn for a longer life. Only Nix could have made her want to cast off her latent grief and embrace Nix's scent.
+
+_I've already loved you since a thousand years ago. I will fall in love with you even more after another thousand years. Nix, I know I live to sing your name again. I can't bear hearing another song in my own purgatory after I met you,_ thought Serena.
 
 Serena saw her princess falter. The time for the radiant prince had come. 
 She recited cants and enchantments of days past. Her body glittered in the darkness. 
@@ -99,8 +107,25 @@ She sighed. He was as intrusive as his father.
 
 "They made me love my own sister."
 
-"The Brood Mother?"
+The Hydra's roars brought Serena back to reality. Something has materialized in its shadow. A grinning face beneath the surface. A non-human entity whose shadow extended strings that directed all of the Hydra's actions. She has always thought it lacked interested for the affairs of the mortal world. Unlike her, it dreamed of nothing. 
+Whether that was a blessing or a curse was an enigma. _At least it could not have dreams that would be disgraced,_ thought Serena.
+She now understood the cause of the Hydra's misbehavior: it was The Gatekeeper, the being that commanded the flow of causality, 
+has subverted her offspring. But why now? It was content at watching her preside over 
+humanity for a millennium.  
 
+"Why? Why do you oppose me?" she asked the Hydra and its puppet master.
+
+Screeches and foul gasses were the answer she received. What else did she expect from the Gatekeeper? Even the Magi themselves had never grasped the meaning of that entity's existence. The only certainty that was established was that it guarded the Gates of the Underworld. To make it leave the comfort of its habitat.
+
+Serena snickered. "You are bored too, are you?"
+
+The visage in the shadows widened its leer. The scent of the Underworld emanated from the Gatekeeper's apparition. Claradore and now the Hydra and the Gatekeeper. Her list 
+of enemies grew ever larger and she grew ever senile.
+
+"I see. You gifted the world to me, and now you want it returned to you."
+
+The Gatekeeper ordered the Hydra to attack again. Serena lept above the heads. Her wings carried her to Nix and Majorian. She grabbed both of them. Tentacles and heads 
+soared above her.
 
 
 
