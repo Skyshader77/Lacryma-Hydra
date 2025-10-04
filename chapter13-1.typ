@@ -107,7 +107,7 @@ She sighed. He was as intrusive as his father.
 
 "They made me love my own sister."
 
-The Hydra's roars brought Serena back to reality. Something has materialized in its shadow. A grinning face beneath the surface. A non-human entity whose shadow extended strings that directed all of the Hydra's actions. She has always thought it lacked interested for the affairs of the mortal world. Unlike her, it dreamed of nothing. 
+The Hydra's roars brought Serena back to reality. Something has materialized in its shadow. A grinning face beneath the surface. A non-human entity whose shadow extended strings that directed all the Hydra's actions. She has always thought it lacked interested for the affairs of the mortal world. Unlike her, it dreamed of nothing. 
 Whether that was a blessing or a curse was an enigma. _At least it could not have dreams that would be disgraced,_ thought Serena.
 She now understood the cause of the Hydra's misbehavior: it was The Gatekeeper, the being that commanded the flow of causality, 
 has subverted her offspring. But why now? It was content at watching her preside over 
@@ -124,8 +124,11 @@ of enemies grew ever larger and she grew ever senile.
 
 "I see. You gifted the world to me, and now you want it returned to you."
 
-The Gatekeeper ordered the Hydra to attack again. Serena lept above the heads. Her wings carried her to Nix and Majorian. She grabbed both of them. Tentacles and heads 
-soared above her.
+The Gatekeeper ordered the Hydra to attack again. Serena leapt above the heads. Her wings carried her to Nix and Majorian. She grabbed both of them. Tentacles and heads 
+soared above her. Pillars of light erupted all around her, covering her retreat. If the Gatekeeper was intent on ransacking her legacy, she would need to seek unlikely allies. Would the Magi agree to form an alliance even if they knew who she was? They had to. The Gatekeeper has chosen to put the fate of the Known World on his balance. 
+
+Serena flew away. Her mind had already solved the sewer's labyrinthine structure.
+She reached a point where rays of light were abundant again. The streets of Thanatopolis once again unraveled before her eyes.
 
 
 
