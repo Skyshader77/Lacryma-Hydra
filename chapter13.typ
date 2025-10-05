@@ -74,7 +74,20 @@ The old Cardinal had been nosy, suffice to say. She never understood the point b
 
 Today they were introducing to court his new replacement. Someone handpicked by High Cardinal Benedictus and blessed by the Goddess herself. A man by the name of Boniface. Nix wished that boredom defined his character.
 
-The new Cardinal moved through the hallways, the surrounding air seemed to condense into ice pellets. His gaze, this predatory seeker riveting anyone from this imaginary seat which he had elevated next to the throne. A vulture in dove’s clothing, peering at the phony confessions it could extract from the average citizen.
+It was only when two white cloaked men vaulted into the throne room in unison that 
+she realized that Metarexia sent two not one Cardinals to the imperial capital. 
+But why two? The Faith has always needed only one of them at Thanatopolis.
+
+The taller Cardinal hastened his pace. He was an aberration of a human being. At eight imperial feet, even 
+the Excubitores felt like dwarves compared to a man of his stature. He glared at the throne with his tired eyes, eyes that have seen the world wither around them. He was dressed an ill-fitting cloak patterned in silver thread and sewn with singing doves and prancing bulls.
+
+Nix watched Claradore's face make a brief grimace at the sight of this man. The Magister Herboraum quickly reverted to his usual stoical demeanor. 
+
+"Your August Majesty," said the Cardinal as he prostrated himself before Ralens the Younger.
+
+"Cardinal Alexander, the Empire welcomes your presence in these trying times," said the Emperor.
+
+The shorter Cardinal moved through the hallways, the surrounding air seemed to condense into ice pellets. His gaze, this predatory seeker riveting anyone from this imaginary seat which he had elevated next to the throne. A vulture in dove’s clothing, peering at the phony confessions it could extract from the average citizen.
 
 "Your Grace," said a voice Nix recognized. Her heart raced. Poison coated in eloquence. Raspy, emitting drawn-out hissing sounds disguised as politeness. Immutable after all those years. She had remembered its exact intonation, its exact pronunciation of these fateful words. An eloquence that masked its venom, a charisma conjoined with unrivaled zealotry, an intonation that unnerved her right hand which reached for her concealed dagger.
 
