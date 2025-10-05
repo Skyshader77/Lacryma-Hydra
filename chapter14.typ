@@ -1,91 +1,4 @@
-Nix sat on Livia's bed wearing the princess no the empress' crimson cloak which 
-absorbed candlelight as if it was spilled wine. A golden brooch shaped like a phoenix clasped the fabric. Livia had worn it once on the day of her majority. Nix' nose found delight in Livia's pine and rose notes. Today she decided to douse her borrowed robe in
-the empress' perfume. Wearing these garments granted her the prestige and authority to 
-make level-headed decisions. She had to act with the decisiveness of the great military commanders of the Sarvitarian Empire's golden age.
-
-Majorian was still confined to the infirmary. It would take weeks for him to be 
-able to walk again. As much as she wanted to continue her escapades with him, 
-Nix had more pressing matters to attend to. 
-
-Livia was the Empress and Domitian, the Emperor. Of course, they would find a way to put the blame of Ralens' disappearance on Claradore. They had ordered his arrest but Claradore had more brains than both of them combined. He had fled underground. Nix expected an imminent order from him. For years, the Red Guild drew a web for Ralens the Younger to sit on. The spider would then supervise the phoenix chick. Once the 
-phoenix was of age, it would return the favor by burning the dove's domain.
-
-Spartak whimpered next to her. It was right to be scared. There were too many 
-uncertainties at the present time. The Hydra had to be dealt with. Ralens had to be 
-recovered should he still be alive. And the usurpers must be deposed. 
-
-When one was faced with such a multitude of problems, one was advised to set priorities. Any logical analysis would have yielded that the usurpers posed the greatest threat to her and Claradore. While the Hydra was menacing and could defeat 
-a Magi, Livia and Domitian commanded the Medean army and treasury. And Ralens...
-Nix had to cling on the faint trace of optimism that he would be alive.
-
-Nix laid her head on Livia's pillow, feeling the beeswax gluing itself on her scalp. 
-How to deal with the usurpers? The solution that Claradore would reject was to simply 
-burst through the throne room and ignite a dance of blood and flames. She and Spartak 
-could cut through the Excurbitores like a hot blade through cheese. But who would sit on the throne of phoenix feathers after the carnage? Claradore? The Medean Empire would be left with a penury of choice. 
-
-"What are you doing in my room?" hissed Livia's voice which was as cold as steel.
-
-Nix bolted upwards. The empress stood before her, clenching a cup of wine. 
-She wore the long flowing gown with a mantle of gold 
-binding the neckline Nix had often borrowed. The red cape enveloping the attire 
-mirrored Livia's flustered visage. 
-
-"Why are you wearing my gown, slave?" said Livia. 
-
-"I was inspecting the integrity of your wardrobe, your August Majesty. Moths may nest inside." said Nix.
-
-It was a bold lie. The empress'face read akin to a death sentence. 
-
-"Moths? Moths? Do you take me for an idiot? Who sent you? Nosrau? Claradore?" said Livia.
-
-"Your brother," said Nix.
-
-"He is dead. We found his corpse."
-
-"You found nothing! He is trapped in the Hydra's den."
-
-Livia raised an eyebrow. "A Hydra? So you are mad on top of being a thief."
-
-"I have seen it, your August Majesty."
-
-"As have the deluded incompetent men we sent in the sewers...Has another plague affected your feeble mind?"
-
-"It feeds on dozens, your August Majesty. Your caches of Medean Fire are needed."
-
-Livia snorted. She crushed the wine cup she was holding. Blood trickled on her well manicured hand. "You think yourself clever, Elysian. You plan to exhaust our stockpiles of 
-Medean Fire, so the Emperor of Kings may strike at us. Do not overestimate your intelligence."
-
-Nix saw that Livia's feet made a slow turn towards the room's entrance. Calling the guards would be the empress' next step.
-
-"I am not Nosrau's agent. You and Domitian are in grave danger. The Hydra can strike from any body of water. Baths, fountains, wells can host it," said Nix.
-
-"Unlikely..." Livia's lips drew a cruel smile. "Since your life is already forfeited, 
-I'll let you in a secret: our ally commands it."
-
-_What?_ thought Nix.
-
-Livia attempted to sprint towards the door. Nix was faster. She leapt on the empress, pressing her hands on Livia's mouth. Spartak lunged behind the battle, slamming the door shut.
-Livia's teeth dug into Nix' fingers. Nix screamed, her mind rejoicing that Livia was not as poisonous as the Hydra.
-
-"Silence! Who commands the Hydra?" said Nix. A muffled curse was her answer.
-
-No one gave orders to the purple born. Livia's arms and legs flailed trying to claw at 
-Nix' nose and eyes. Nix' left arm desperately tried to shield her face from the blows.
-She could end this usurper's life now and be remembered as a slayer of kings for the rest of human history.  
-
-The limiting factor was that she needed what Livia knew. How to pry a brain without murdering it? The Red Guild was well versed in the art of torture. As pleasurable as that art was, having a purple born without a limb or two could constitute a problem. 
-There was of course another way to force a mind to obey another's will. She had already demonstrated that at Baba's house with a fox.
-
-Nix melted her right hand. Her blood flowed through Livia's mouth, touching the princess's tongue. She felt Livia's teeth attempt to bite her liquefied form. Humans fought where animals did not resist. She did not understand and she did not want to. Nix would not be deterred. 
-Nix' torso, legs and feet followed her right hand. She felt her head melt before entering the mouth, fighting the princess' gag reflex. Such an act was sacrilege for the Magi but did it matter? A screen of velvet curtains descended before her vision which saw Livia's throat, esophagus and heart scroll before her cascading form. 
-
-#align(center)[⁂]
-
-Livia's eyes opened themselves. Her body boiled. Toes, fingers, tendons, shoulders, everything ached and burned. Livia had never felt this sensation. Empty air escaped her mouth. #emph[What is going on?];. Help. She had to call a handmaiden. None of her muscles responded. Outside, the moon shone, casting a malefic light on her still body. Livia did not understand. Why couldn’t she move?
-
-The last thing she remembered was the deranged handmaiden that dared to wound her. 
-Death was too kind for that one. For all Livia knew, her assailant 
-was an Elysian spy.
+Her eyes opened themselves. Her body boiled. Toes, fingers, tendons, shoulders, everything ached and burned. Livia had never felt this sensation. Empty air escaped her mouth. #emph[What is going on?];. Help. She had to call a handmaiden. None of her muscles responded. Outside, the moon shone, casting a malefic light on her still body. Livia did not understand. Why couldn’t she move?
 
 Blood. This smell overwhelmed her nose. #emph[Is someone hurt? Am I bleeding?] Yet it was not just blood in the air. An unpalpable, almost undetectable flagrance. Ancient and pernicious through its elusiveness. All of her senses were trying to identify this scent which they should know.
 
@@ -135,48 +48,42 @@ The night could not worsen further. Something cawed. A crow with a bald human he
 
 The bird-thing bit an apple with its human lips. "My dear, even Baba could not possibly envision what you have just done. What are you going to do next?"
 
-"There is a Hydra dwelling underneath of us."
+Her body placed a finger on her mouth. "Shhh. I just noticed. She can still hear us."
 
-"I am aware."
+"My my, so the spell has not been perfected yet. What a shame."
 
-"And you have never told me?"
+"She saw you."
 
-"I did not think the Emperor would care for it."
+The bird-thing fed flies to cobblewebs on the corner of the window. "Rest assured, my dear. No one will believe her, not even the Emperor himself."
 
-"And yet the Hydra took the Emperor. He may have crossed the Gates of the Underworld already."
+"I’ll exit this, then. We have accomplished what we wanted."
 
-"The Emperor lives."
+Livia felt her body convulse. She crumbled to the ground, shaking with increasing folly. She screamed, this time sound erupting from her vocal chords. #emph[Free! I am free!] Her eyes teared up as a grotesque bulge was forming on her throat. It began as small as a pear. A searing pain consumed her neck as more and more blood flowed towards the horrible protrusion, swelling it to the size of a melon. #emph[I can’t breathe.]
 
-Livia felt one of her eyebrows arch.
+In a single instant, she retched a putrid mass of blood. For ten long agonizing seconds, Livia expelled liters if not gallons of foul liquid from herself. The taste. It felt she tasted every member of the human body concentrated in a vile juice. Never had she gagged as much as she did. Her eyes fluttered. The last thing they saw was the bird-thing departing from her window. Her world went black.
 
-"How?" said the demon wearing her skin.
+"My Lady is all right? I heard screaming," asked the Elysian dancer at her door.
 
-"The Hydra needs him. He is bait for us Magi."
+Livia shot up from her bed, frantically reaching for anything she could use as a weapon. Her body was drenched in urine and sweat. She could hear her own frenzied breathing.
 
-"So it grants us time."
+#emph[What? Was this all a dream?]
 
-"Time we should exploit to its fullest, my dear."
+The Elysian. Livia has always found that attire ridiculous. Fully clothed in thick red tunic from head to shoes, a full demonstration of Claradore’s eccentricities. How that girl was supposed to endure the summer heat was beyond Livia’s comprehension. The girl’s eyes though...While Elysian women all looked the same, this one...There was something about her.
 
-Her body placed a finger on her mouth. "Quiet. She hears us still.."
+The Elysians...They had strayed away from The Faith, the worst decision someone could have made. The inability to cross the Gates of Hel...Stranded on the other side, unable to join in your loved ones the afterlife...Oh, if only she could save them...
 
-"My, my, so the spell has not been perfected yet. What a shame."
+#emph[Elysians. The gryphons of the desert. Our country’s sworn rival. Why did it have to be this way?]
 
-"I will rectify this mistake."
+Livia asked for a bath to be prepared. Somehow, the Elysian dancer already anticipated her request. It was then that Livia recognized her face. She was that puppeteer from earlier and her brother’s tutor. She must have fornicated with Claradore to attain this position. There is no other way. Her name could have been Bix...Rix...Tix...Nix...Pix...probably Mix.
 
-Livia felt her body convulse. She crumbled to the ground, shaking with increasing folly. She screamed, this time sound erupting from her vocal chords. #emph[Free! I am free!] Her eyes teared up as a grotesque swell was forming on
-her left cheek. It had the texture of a foul egg. A human face hatched from it. It was the handmaiden that assaulted her, the one who had the gall of wearing her clothes.
-The second visage, this cancerous spawn that desecrated her flesh, sneered.
+"I have had the worst nightmare to date. Let the Magister Herbarum know about it," said Livia.
 
-"We meet again, Empress."
+"Princess, I am again sorry such vile omens plague you, I shall fetch Claradore," said Mix.
 
-"You! Get out of me!"
+"Tell me before you go...Does magic still exist in the Elysian Empire?"
 
-"It is time for you to sleep, Empress, permanently," said the handmaiden.
+Mix raised an eyebrow. "I do not understand the question, Princess. Everyone knows magic has been extinct for more than a thousand years."
 
-"What do you want, fiend?"
+"That cannot be true...My dreams...You cannot comprehend what I have dreamed of."
 
-"Have you not guessed it? Your will must follow mine."
-
-"You repulsive thing, you cannot claim to control me," said Livia.
-
-The vile bulge disappeared, but another formed within her throat. It began as small as a pear. A searing pain consumed her neck as more and more blood flowed towards the horrible protrusion, swelling it to the size of a melon. #emph[I can’t breathe.]. The taste. It felt she tasted every member of the human body concentrated in a vile juice. Never had she gagged as much as she did. Her eyes fluttered. The last thing they saw was the bird-thing departing from her window. Her world went black.
+Mix placed her hand over Livia’s. Glacial. How the Elysian’s touch could be colder than snow? The human body could not be that frigid. "Princess, you should rest easy. Know that should magic truly return, the Faith, the Barbarian Kingdoms, Elysian and Medean Empires, no the Known World, would be in a torrent of unadulterated pain."

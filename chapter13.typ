@@ -1,145 +1,82 @@
-In normal circumstances, diving head first into a well without a plan was considered 
-suicide. The great Sarvitar's ghost would be rolling in his sarcophagus. But Nix 
-was a Magi, not a soldier, a very careless Magi. 
+In the history books, it would have taken climbing a mountain of skulls to achieve this. The ability to tame fate had been reserved exclusively to the Goddess and the purple born. To them, it was the Heavens’ mandate to forge a better world for their denizens. Elysians, Rauthengardians, Cachalots, Medeans, clergymen, courtiers with their varied costumes assembled beneath the imperial throne centered around four fire pots used to clean its dried phoenix feathers. Servants held the plumes with pincers over the brazier, the phoenix’ remains glittering above the flames. #emph[The phoenix shall always resurrect.]
 
-She landed on turpid water. Spartak fell atop her back. Water splashed on her face. 
-Nix groaned in pain. 
+Frescoes detailing the Empire’s past victories against the Donians unwinded before any visitor. Nix had once touched the painted marble, letting her mind travel through time. From Emperor Marro reuniting the Tiarmat and Medean Empires one last time to the desperate struggle against Molochian hordes, the memories of the elders resurfaced through art. They had always succeeded in rocking Nix within her present hammock, singing songs of bravery and treason.
 
-She flicked her fingers, birthing a flame in her palms. Corridors of arches adorned with gorgon heads unfolded before her eyes. Emperor Marro built these sewers from the back of thousand of slaves who were executed after the complex' completion. Now only 
-the Goddess had the full layout of this labyrinth.
+The first man entered the titanic bronze gates, rows of Excubitores struck the pristine floor, announcing his coming. Mechanical birds sang. Some were as small as a fist. Others were as large as a melon. When one pulled a string on their back, they would emit the exact same noise as a real life bird. Most of the time, they would be found on the tree of gilt bronze in front of the Emperor’s throne. Another invention used to wow the barbarian emissaries that would waddle in court. Today, Nix asked her pupil to display one that showed a house standing on mushrooms with an old lady in front of it. A young girl was running away from a bear next to the home while carrying what appeared to be a fish in her hands.
 
-The octopus that had taken Ralens and Majorian must not be far. Nothing made sense.
-Octopi were sea borne creatures. While there existed specimens which were as large as 
-a quinquereme, these were confined to the ocean's abyss. Nix has never heard of a land borne cephalopod. 
+The father and the mother, ragged farmers from the capital’s outskirts, came before the Emperor with their son. The child toddled in awe of the grandiose architecture before stopping in front of her elevated throne illuminated by the building’s oculus. He charmed the ranks of noblewomen eyeing him with affection. The little one’s pupils loitered around the coffered concrete dome. Above, constellations were mapped via glintstones on the ceiling.
 
-"Where are they, Spartak," she said to her dog.
+"I too was impressed like you, little one, by these. Have you seen our collection of statues? Emperor Tiarmat wrestling a bull can also help foster your imagination." Nix mused. "How may the crown guide you today, my dear?"
 
-The hound sniffed the stagnant air. It moved upstream. She followed it.
-The man Emperor Ralens the Elder had executed a few months ago had ventured inside 
-this complex only to claim monsters inhabited it. 
+The man lunged forward, shoving his child aside. "Milord, this whore cheated on me for a low life scoundrel. I am divorcing her; the boy belongs to me by right. He is old enough to work on my fields," said the man, his bloodshot eyes darting his bruised wife.
 
-_Maybe we had misjudged him_ thought Nix. It was too late for empathy. The Emperor could never be seen making a mistake for his will was absolute. The day the purple born admitted any error would be the end of their holy mandate.
+"Your August Majesty, please, I had no choice: I needed money. He spent it all on alcohol and prostitutes."
 
-Nix was unfazed by the first headless corpse Spartak found. It belonged to an old man who wore one of the Emeralds' armlet. Rats and maggots feasted on the remains. Spartak barked with apprehension. There would be more. There was no story of octopi preying 
-on humans on land. A corridor led to a dead end. A mountain of putrefying corpses 
-laid before her eyes. Boys, girls, old and young were piled up for roaches and other agents of the Gatekeeper to devour. All of the dead were missing their head. No creature in the Known World 
-only feasted on the head.
+"Wench! See milord, the whore lies in front of you! You have all the evidence of her debauchery. The boy must be mine!"
 
-They found Majorian's unconscious body. She checked his heartbeat. 
+"I see the matter relates to the custody of your son. As the divine representative of the Goddess on the mortal plane, I will provide guidance for you. Do you swear by the Goddess you shall respect my decision?" said Ralens in the Classical Tongue. #emph[Flawless discourse.] The fruits of laborious nights spent rehearsing this type of answer grew from the throne. Nix picked one, savoring its sour taste.
 
-_He is alive,_ thought Nix. She planted a kiss on his forehead.
+Both parents acquiesced his words. Ralens turned to Nix.
 
-Her arms hauled Majorian and his heavy armor. There was now the issue of finding the Emperor and returning both of them to the surface with her frail arms. Unless 
-of course Spartak did not mind carrying both of them when the time came. 
+"Then let’s proceed. You two have proven unable to safeguard your son. The crown shall buy the boy from you to relieve you from this burden. He will work in the palace’s gardens, a starting place for a prosperous career at court, no? Four sheep and two cows for the boy!" Nix announced to the surprised court. She found Serena hiding behind an Excubitore’s purple cloak. Her friend put a finger on her mouth. Mischief would run rampant as her hands wandered around the deep pockets she had access to.
 
-"I will make your favorite treat for an entire month," said Nix. Spartak simply wagged 
-its tail.
+"No, please! He is my child!" begged the mother.
 
-Something slithered in the water behind her. It tried to practice this pretend 
-stealth. Fool! A Magi was not an easy prey. Spartak growled at the newcomer. 
-Nix heard a tentacle jump out of the water, lunging at her. She closed her eyes. 
-Her right arm melted. _Sword,_ she thought. Blood filaments formed a blade. 
-She slashed, feeling blood slice both air and flesh. The creature's appendage fell in shallow water.
+"Seven sheep and five cows," said the father. #emph[Let’s play.]
 
-"Maaa-aaaa-aaa-g-iii-iiii-iiii," hissed an inhuman voice hailing from the other side of the Gates of the Underworld.
+"Five sheep and three cows."
 
-"It talks! It talks?" screamed Nix. Her blood froze. Chills cascaded down her bones. 
-This was no octopus. No, no, no, the ability of speech or rather the proof of intelligence made this monster a dangerous one. Only creatures created by Magi were capable of speech. Claradore had to know. Or did he?
-The man was buried by endless layers of Medean bureaucracy. He could not have the time 
-for a promenade through the sewers. And what if this thing was his pet? 
+"Stop! Please! You can’t do this! My baby is not for sale!"
 
-_He would have told me,_ thought Nix.
+"Six sheep and four cows," continued the man.
 
-"IIII waaaaant youuuuuuu, Maaa-aaaa-aaa-g-iii-iiii-iiii," taunted the thing in 
-what appeared to the Forgotten Tongue.
+"Six sheep and four cows for the boy it is!" she proclaimed much to the delight of the father. At the sight of the mother’s utter dismay and the boy’s incomprehension, she beamed a radiant smile none associated with deceit. "You will not fetch this sum. The crown has decided that the boy belongs to his mother. He who sells his children to another is unworthy of parenthood."
 
-"Show your ugly visage first," said Nix.
+A serenade of gasps crossed the court. The farmer’s despair was one she would cherish for the rest of her years.
 
-Perhaps some taunts were best left unsaid. Not one but eight heads emerged from the 
-darkness. All were parodies of human faces deformed by misuse of magic. Some faces 
-grinned, others performed this despicable imitation of human sorrow. Baba had told her the stories of the Hydra, this beast that hid beneath villages and fed on unsuspecting villagers. The Magi had tamed these creatures, using them to cull their 
-slave armies. The history books said that all were destroyed by the Goddess alongside their Magi masters. Visibly, the history books were erroneous again.
+"Thank you! Thank you! May the True Goddess reward your kindness Your August Majesty!" bowed the woman. Jubilant noblewomen hailed the decision. Serena joined the applause, yelling Nix’ name. "Victory! Victory! Victory! Victory!" they clamored in unison.
 
-"Maaa-aaaa-aaa-g-iii-iiii-iiii, feeeeeeed meeeeeeeee."
+Serena smacked Nix’ hands in the restroom. "I have never thought you had an affinity for this, pumpkin face!"
 
-The thing reeked of death and of dark magic. 
-Ending her days within its stomach was not a desirable outcome. Nix concentrated her blood on her left arm. Another blood blade was formed. The Magi had created the Hydras.
-This rogue beast needed to be reminded who its masters were. Once it was tamed, the 
-possibility of harnessing its power for the Red Guild was all too tempting. Claradore 
-could send it to Metarexia where it could have a buffet beneath the Octine Cathedral. 
+"It is all Claradore’s wisdom."
 
-It attacked first, sending one of its vile heads forward. It bore its fangs which were as sharp as a shark's. 
-With only one head, its motions were predictable. The tempo was too slow. She could waltz around it indefinitely. Her blood blade 
-cleaved the head in half. The second head came next. Sending them one by one? The Hydra was only as smart as the most uncultured human. She felt her hand slice through its
-cartilage. Its blood tasted foul unlike a human's. 
-The heads fell in the waters.
+Serena snatched her hands, pulling her closer to her. Vanilla, heavy with notes of lavender, rosemary and thyme. In fact, Nix knew who this perfume belonged to. Only one woman in the Known World could wear it: the Medean Empress. Serena’s boldness fascinated her. "Modesty won’t save you from me. Don’t you wish for it too? Sitting in the Emperor’s seat?" said Serena.
 
-"So you understand the Forgotten Tongue. Release the Emperor at once and your life 
-will be spared," said Nix.
+What was the answer Serena had hoped to acquire? What would Nix tell her? That she had locked herself in a deserted exhibition room with Spartak, one she knew all too well. Then, she had also surrendered to her own habit: borrowing Livia’s clothes which littered the floor of the princess’ room, her jewels glistening against moonlight intruding from the window. Carnation, fuchsia, purple, rose, cyan, turquoise, teal, white. When opening the princess’ closet, Nix could swear all colors constituting a rainbow were paraded in front of her eyes. The worst slight of it all was that most if not all of these dresses and tunics would only see the day of light once.
 
-The Hydra made a parody of a laugh.
+She had been enamored with exhibition room since the first time Claradore had brought her here. In the middle stood the object of her desires, the oak leaves crown with a ruby diadem laying on top of a dragon’s skull. Zenobia’s crown, untouched for over two centuries. Phoenix feathers were glued to the leaves. A magnet she could not refuse. It compelled her, summoning her to a dreamscape in which she saw herself with it atop her head. In her mind, courtiers, senators and Excubitores would bow before her while she sat where the Emperor would usually sit. Was it how Vitiatius felt when The Goddess had offered it to him? Such a delight to even hold it in one’s hands, to touch it, to imagine being in the throne room with everyone’s else fixated on the person wearing it.
 
-The stumps that became the heads 
-retreated. Blood and bones bulged from the injuries. All made a horrible gurgling sound. To her horror, flesh arose from the decapitated sections. It blossomed akin to a fetid flower. Four new 
-heads emerged. All made detestable grimaces.
+Nix had stripped of her plain tunic. Livia’s underwear had fitted her. Next came the purple dress, still imbued with Livia’s perfume, a dose of vanilla assailing her nose. Touching it, she felt the quality of the tissue, phoenix were sewn on the collar and on the sleeves. Even Baba’s craftsmanship could not hope to match this. #emph[Drachmas always win don’t they?]
 
-Nix did not fancy this. The monster had acquired some sort of confidence. According to Baba's encyclopedias, Hydras preferred to ambush their prey. The sole reason why this one would face its food source head on was that it had learned not to fear humanity anymore. 
+The mirror was used to apply the touches she had often enhanced Livia with. Black eyeliner derived from snails fished in the North Sea, lipstick made from crushed cochineals, lead, powdered ash and saffron for face powder. They had suited her face more than Livia’s.
 
-_I have to do everything myself,_ thought Nix.
+Once she had been done, she had seen an Elysian princess looking back at her. Nix had bowed in front of the mirror like Livia would have in front of foreign dignitaries. She had spun around, admiring the authority and elegance this outfit bestowed her with. In the stories of old, there was this one tale of a prince finding out he was the long-lost heir of the Regnassian Empire. While it was impossible in her case, that did not stop her from pondering on that possibility. One became royalty either through steel or by blood. And if Claradore taught her anything was that steel was more reliable than blood.
 
-Nix whistled. Spartak joined the melee, gnawing at one head. The Hydra wailed, sending her dog 
-flying in the air before smashing it down with a tentacle. She tried to reach 
-Spartak. A wall of hideous heads obstructed her. Nix kept on slashing. Something 
-bit her leg. She screamed. One of the Hydra's visages crunched her heel, lifting 
-her up in the air. Her arms flailed in the air.
+Spartak had sniffed her, initially upset by Livia’s scent. She had grabbed its body, bringing it closer to her. It had licked her again. Nix had shown it its favorite ball. #emph[Want to play outside?] Its eyes had lit up with childish amazement. Spartak had sprinted to the vestibule’s door at lightning speed. It emitted high-pitched barks, hitting the door with its paws.
 
-"Nooooooooot scaaaaaaaaaaaaryyyyyyyyyy," taunted the thing. One of its heads opened its gaping mouth.
+"Hold on! I need to try something!"
 
-She liquefied her leg, freeing herself from its grip. A grimy substance followed her blood. Venom. It had entered her body.
-Nix spun around herself, her blood swords forming a wheel of serrating blades. 
-She threw herself against the thing, pressing her arms against its swarm of heads.
-Tentacles, appendages and heads were propelled in the air. The creature roared in pain.
+#emph[Am I worthy of it like this?] Impatience flowed from the crown next to her. It had called her, this magnet pulling her into its sphere of influence. Were all humans like this, drawn by this desire to see themselves with this ornament? Nix had yanked it from its stand, placing it over her head. Princess now empress stood in front the mirror. Her mother who abandoned her. Would she approve? Or would she wallow in jealousy in her early grave? Nix had wondered. So many questions that could only be answered once she returned to the Gates of the Underworld. The Grimoire of Red said that one who stood before them would reunite with the person that cared the most about them. When she was a child, she had always hoped that her mother would await her then. Now, the most likely candidate was Baba...
 
-_At least it knows pain,_ thought Nix.
+Her favorite painting, this panorama with Empress Zenobia raising her battleaxe over High Cardinal Pius’ head greeted her overhead. Nix had breathed, imagining herself wielding the same weapon, only her arms were not as muscular as Zenobia’s. Magic used another set of muscles after all. She had swung her imaginary axe. Again and again. Cardinal Pius who had enslaved Zenobia and her mother. Pius who started Zenobia’s lifelong quest for justice. Pius whose infamous pleading for his life had been transcribed over and over by Zenobia’s sages. Pius who was responsible for the sacking of the Holy City under the imperial army. One day, Nix would be courageous and paint the Man in White’s face over Pius’ in that painting.
 
-"Who birthed you?" asked Nix.
+She had disappointed herself when she had placed the crown back to its original location.
 
-"Gooooooooooooooo...Goooooooooooooooooooooood" hissed the thing.
+"It would look good on me. The crown belongs to those who do not seek it, " Nix simply said to Serena.
 
-The assault had to continue. She had the initiative and any tactician agreed that losing it was a mistake. Blood splattered on her face. Her blood blades tore through bones and flesh alike. Nix was the heavy calvary that plowed through a disorganized 
-phalanx, a hot sword carving a bloody path through cheese. She lost count of the number of heads she had cut of. Was it ten? Twenty? How many 
-did this creature possess? The books only mentioned Hydras with 5-6 heads. This one had more than thrice that number.
+"Your father would have been proud of you," said Serena.
 
-Nix continued her charge. The enemy shield wall had reached its breaking point. She could feel it. By the time she had cut down the forest of heads, she would reach the 
-sleeping princess' castle. There lied the Hydra's heart. Like a charming prince, Nix 
-would claim her prize and add the trophy to her gallery.
+#emph[What is that supposed to mean?]
 
-A searing pain in her abdomen stopped her carnage. Nix fell, clutching her stomach.
-A mixture of green and black fluids 
-glowed in her veins. Her right leg grew numb. Her vision fluttered. 
-The poison. Within hours no minutes, she would not be able to run anymore. Claradore would know what to do. He had an antidote.
+The colossal bronze gates vaulted open. Columns of Men of the Crucible marched in discord. While military marches followed a strict and discernable tempo, this one was inclined in exhibiting a chaotic choir that would have made any general claw their own eyeballs out of their sockets. Armor that resisted the rules of conformity, beards ridden with bread crumbs and banners that had been degraded by sunlight. Their performance might be risible but their numbers were anything but a laughing matter. For this new Cardinal thought it pertinent to bring an escort of two hundred Men of the Crucible.
 
-Spartak shielded her front. A head came at her only for her dog to headbutt it.
-The head winced in agony, one of its eyeballs dangling on Spartak's jaws.
+The old Cardinal had been nosy, suffice to say. She never understood the point between being a man of The Faith and putting one’s entire slug head in other people’s gardens. It had seemed all those old men did in their spare time was pray or spy on the ordinary of men, plucking petals out of flowers grown by others. Only when the last Cardinal got close to the truth that Claradore asked had tasked her to put him in early retirement.
 
-Nix mustered every droplet of strength she could find to stand up. Her breathing had slowed even though her life now depended on it. In front of her, more heads sprouted from the thing's severed organs. 
+Today they were introducing to court his new replacement. Someone handpicked by High Cardinal Benedictus and blessed by the Goddess herself. A man by the name of Boniface. Nix wished that boredom defined his character.
 
-She tried reforging a blood blade. Her arm refused her command. The blood filaments 
-failed to converge. Nix cursed. To lose because of attrition to an animal of all things. 
+The new Cardinal moved through the hallways, the surrounding air seemed to condense into ice pellets. His gaze, this predatory seeker riveting anyone from this imaginary seat which he had elevated next to the throne. A vulture in dove’s clothing, peering at the phony confessions it could extract from the average citizen.
 
-The innumerable heads stared at both her and Spartak. They gloated with their satire of a smile. It was a futile endeavor. She looked behind her. A dead end greeted her.
-Fire. Nix needed fire. A colossal amount of it. To her knowledge, a Hydra of this size must have at least eighty heads. A conservative estimate would be that its body took up the 
-entirety of the sewers. Not even a legion could dislodge it.
+"Your Grace," said a voice Nix recognized. Her heart raced. Poison coated in eloquence. Raspy, emitting drawn-out hissing sounds disguised as politeness. Immutable after all those years. She had remembered its exact intonation, its exact pronunciation of these fateful words. An eloquence that masked its venom, a charisma conjoined with unrivaled zealotry, an intonation that unnerved her right hand which reached for her concealed dagger.
 
-The poison's throbbing pain consumed her right leg. It burned as if a thousand fire ants had bit her lower body. Nix crumbled to the ground. 
-Spartak barked with alarm. The Hydra licked its teeth. Had she made a mistake? 
-She had let her affection for Majorian dictate her actions, ignoring reason 
-and tactical soundness. In a fairy tale, this would have guaranteed victory. Love after all was the most powerful magic of them all. However, life was never a fairy tale. There was no one to come to your rescue. People only existed to be stepped on 
-to build a ladder for success.
-
-The Hydra bore down dozens of heads. Nix closed her eyes, embracing the extent of her errors. 
-
-_Wait for me, Baba,_ thought Nix.
-
-Her reunion with Baba would have to wait. A beam of light engulfed the dozens of heads, disintegrating them.
+He had aged, wrinkles now covering his forehead yet that self-righteousness, this despicable zealousness, that confidence, all remained intact. She had never forgotten. White cloak on which were richly drawn resplendent gold doves ripped straight from one of her old encyclopedias. He always hid with the populace, a leech feeding on his own lies. Yet there he stood now in front of her after all those years. Nix wanted to laugh, for the Man in White had returned.
 
