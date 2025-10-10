@@ -1,89 +1,102 @@
-Her eyes opened themselves. Her body boiled. Toes, fingers, tendons, shoulders, everything ached and burned. Livia had never felt this sensation. Empty air escaped her mouth. #emph[What is going on?];. Help. She had to call a handmaiden. None of her muscles responded. Outside, the moon shone, casting a malefic light on her still body. Livia did not understand. Why couldn’t she move?
+In the history books, it would have taken climbing a mountain of skulls to achieve this. The ability to tame fate had been reserved exclusively to the Goddess and the purple born. To them, it was the Heavens’ mandate to forge a better world for their denizens. Elysians, Rauthengardians, Cachalots, Medeans, clergymen, courtiers with their varied costumes assembled beneath the imperial throne centered around four fire pots used to clean its dried phoenix feathers. Servants held the plumes with pincers over the brazier, the phoenix’ remains glittering above the flames. #emph[The phoenix shall always resurrect.]
 
-Blood. This smell overwhelmed her nose. #emph[Is someone hurt? Am I bleeding?] Yet it was not just blood in the air. An unpalpable, almost undetectable flagrance. Ancient and pernicious through its elusiveness. All of her senses were trying to identify this scent which they should know.
+Frescoes detailing the Empire’s past victories against the Donians unwinded before any visitor. Nix had once touched the painted marble, letting her mind travel through time. From Emperor Marro reuniting the Tiarmat and Medean Empires one last time to the desperate struggle against Molochian hordes, the memories of the elders resurfaced through art. They had always succeeded in rocking Nix within her present hammock, singing songs of bravery and treason.
 
-Her back raised itself. Something like a whip lashed at it. She did not give that order. Her fingers cracked themselves. It felt they had doubled in weight. In fact, her entire body seemed to drag this unseen mass or boulder behind it. #emph[What in the Goddess’ name is happening?] Her body brought her hands before her eyes. Her right hand touched her left hand’s palm. A foreign tingling shook her entire being as if it was the first time her body had touched that area. #emph[Stop!] Akin to a petulant child, her hands went to her waist, her shoulders and then her cheeks, pressing their palms against her skin. A tidal wave of unknown sensitivity struck Livia’s nerves. Never had she imagined her own body to be this reactive to her own touch. It did not make any sense.
+The first man entered the titanic bronze gates, rows of Excubitores struck the pristine floor, announcing his coming. Mechanical birds sang. Some were as small as a fist. Others were as large as a melon. When one pulled a string on their back, they would emit the exact same noise as a real life bird. Most of the time, they would be found on the tree of gilt bronze in front of the Emperor’s throne. Another invention used to wow the barbarian emissaries that would waddle in court. Today, Nix asked her pupil to display one that showed a house standing on mushrooms with an old lady in front of it. A young girl was running away from a bear next to the home while carrying what appeared to be a fish in her hands.
 
-It was only now that she noticed it. Two. She could hear two heartbeats within her body. One beating faster than Medean war drums and the other...The other followed this unsettling beat, one that had no cadence. One whose frequency would madden the calmest of men. A beat that could only be achieved through unnatural means. Magic? Again, her lungs denied her the opportunity to scream.
+The father and the mother, ragged farmers from the capital’s outskirts, came before the Emperor with their son. The child toddled in awe of the grandiose architecture before stopping in front of her elevated throne illuminated by the building’s oculus. He charmed the ranks of noblewomen eyeing him with affection. The little one’s pupils loitered around the coffered concrete dome. Above, constellations were mapped via glintstones on the ceiling.
 
-Blood. She could taste it. A bulge within her skin coursing through her veins. This mass of red liquid crawling through the second heart, forcing every orifice of her body to accommodate it. The way it moved within her. It had legs. Eight of them. Akin to a termite colony, it could splinter into dozens if not hundreds of broodlings. Legions of them hatched from discarded shells. They scrambled to her lungs, her stomach, her eyes, her heart and her nose. Blood. Blood and a sour black substance poisoned her tongue. She felt them swarm all over. Crawling in every interstice of her organ, foraging for flesh. They seized everything forcing her to do their bidding. If only she could vomit at the thought of that. When they wished, the broodlings could aggregate again into one fell abomination before slithering to her head, her lungs, her legs, petrifying all of her organs.
+"I too was impressed like you, little one, by these. Have you seen our collection of statues? Emperor Tiarmat wrestling a bull can also help foster your imagination." Nix mused. "How may the crown guide you today, my dear?"
 
-"It worked..." said Livia’s voice. Livia screeched to no avail, her voice clawing at this invisible barrier.
+The man lunged forward, shoving his child aside. "Milord, this whore cheated on me for a low life scoundrel. I am divorcing her; the boy belongs to me by right. He is old enough to work on my fields," said the man, his bloodshot eyes darting his bruised wife.
 
-Her body sauntered out of the bed. It jumped with glee, causing the blood bulge to traverse all of her organs at a nightmarish speed. Her stomach churned . Mucus ran from her nose. Her body nonchalantly wiped it with a finger. Livia wished she could faint right now. #emph[Stop it! Goddess save me from this!]
+"Your August Majesty, please, I had no choice: I needed money. He spent it all on alcohol and prostitutes."
 
-"It really worked! I...I can’t believe it! Oh! Baba! If only you could see this!"
+"Wench! See milord, the whore lies in front of you! You have all the evidence of her debauchery. The boy must be mine!"
 
-Her body moved towards the mirror. Dishevelled black hair and a sweat soaked body greeted her red eyes. Red eyes...Red as the Medean phoenix. This could not be… Her eyes were blue. Liva saw her agony within those crimson eyes. Eyes which could peer at the depth of someone’s soul. Eyes which brimmed with fanatical determination through their lust for violence. The Brood Mother. #emph[Goddess help me!]
+"I see the matter relates to the custody of your son. As the divine representative of the Goddess on the mortal plane, I will provide guidance for you. Do you swear by the Goddess you shall respect my decision?" said Ralens in the Classical Tongue. #emph[Flawless discourse.] The fruits of laborious nights spent rehearsing this type of answer grew from the throne. Nix picked one, savoring its sour taste.
 
-"Salutations citizens, my name is Livia and I’m as the Goddess’ cunt!" said her voice as her face extended its tongue in a childish manner. The expressions her visage made...They should not be possible. From mischievous grins to devilish laughs, faces both her mother and father would have scolded her for when she was younger. #emph[Please don’t watch this Goddess! I can’t! I don’t know what is going on!]
+Both parents acquiesced his words. Ralens turned to Nix.
 
-Screams, attempts to raise her fists. Nothing worked as her own body cackled by itself, deriding her. This had to be dream. Livia had to wake up. Yes, she should be in Domitian’s arms at this moment. This was just some wicked enchantment conjured by pagans such as those Elysians or Molochians merchants. It had to be.
+"Then let’s proceed. You two have proven unable to safeguard your son. The crown shall buy the boy from you to relieve you from this burden. He will work in the palace’s gardens, a starting place for a prosperous career at court, no? Four sheep and two cows for the boy!" Nix announced to the surprised court. She found Serena hiding behind an Excubitore’s purple cloak. Her friend put a finger on her mouth. Mischief would run rampant as her hands wandered around the deep pockets she had access to.
 
-Whatever her body wanted...It gravitated towards her wardrobe. Her eyes were now fixated on that purple cloak that the late Empress Eudoxia once wore during her balls. It was still emblazoned with the Tiarmat hydra. Her fingers ran through the delicate fox hide that comprised the collar of the attire.
+"No, please! He is my child!" begged the mother.
 
-"I have always wanted this one," said her voice as her hands scurried to put on the cloak.
+"Seven sheep and five cows," said the father. #emph[Let’s play.]
 
-Turning to the mirror, her face snickered.
+"Five sheep and three cows."
 
-"See it does look better on me."
+"Stop! Please! You can’t do this! My baby is not for sale!"
 
-#emph[Goddess save me! A demon resides within me! What have I done to deserve this?]
+"Six sheep and four cows," continued the man.
 
-The night could not worsen further. Something cawed. A crow with a bald human head appeared on her window. A creature descending straight from beyond the Gates of the Underworld. It sneered at her. Were those teeth even human? Livia did not dare to ask. Impossible. How this monster could exist was beyond the Goddess’ pantheon. The Goddess had ensured mankind that magic was annihilated. Regnant’s entire army purged the Known World of the villainous Magi and their human sacrifices. Nothing made sense in this feverish nightmare. #emph[Domitian will think I am insane for imaginating this!]
+"Six sheep and four cows for the boy it is!" she proclaimed much to the delight of the father. At the sight of the mother’s utter dismay and the boy’s incomprehension, she beamed a radiant smile none associated with deceit. "You will not fetch this sum. The crown has decided that the boy belongs to his mother. He who sells his children to another is unworthy of parenthood."
 
-"You truly have done it, my dear. How long can you hold?" said the monstrosity.
+A serenade of gasps crossed the court. The farmer’s despair was one she would cherish for the rest of her years.
 
-"You doubt me?" said Livia’s voice.
+"Thank you! Thank you! May the True Goddess reward your kindness Your August Majesty!" bowed the woman. Jubilant noblewomen hailed the decision. Serena joined the applause, yelling Nix’ name. "Victory! Victory! Victory! Victory!" they clamored in unison.
 
-"That is not the point. There is a reason the Magi had crucified all the people who attempted this... I have seen it myself...The last execution of this kind of miscreant..."
+Serena smacked Nix’ hands in the restroom. "I have never thought you had an affinity for this, pumpkin face!"
 
-"What are dead men’s rules to the living?"
+"It is all Claradore’s wisdom."
 
-"The blood mingles with one another, my dear...You should never lose sight of yourself."
+Serena snatched her hands, pulling her closer to her. Vanilla, heavy with notes of lavender, rosemary and thyme. In fact, Nix knew who this perfume belonged to. Only one woman in the Known World could wear it: the Medean Empress. Serena’s boldness fascinated her. "Modesty won’t save you from me. Don’t you wish for it too? Sitting in the Emperor’s seat?" said Serena.
 
-"Always with the riddles...Has Baba ever told you how predictable you were?"
+What was the answer Serena had hoped to acquire? What would Nix tell her? That she had locked herself in a deserted exhibition room with Spartak, one she knew all too well. Then, she had also surrendered to her own habit: borrowing Livia’s clothes which littered the floor of the princess’ room, her jewels glistening against moonlight intruding from the window. Carnation, fuchsia, purple, rose, cyan, turquoise, teal, white. When opening the princess’ closet, Nix could swear all colors constituting a rainbow were paraded in front of her eyes. The worst slight of it all was that most if not all of these dresses and tunics would only see the day of light once.
 
-#emph[Who is this Baba? Magi? The Goddess liberated this world of the Magi a thousand years ago!]
+She had been enamored with exhibition room since the first time Claradore had brought her here. In the middle stood the object of her desires, the oak leaves crown with a ruby diadem laying on top of a dragon’s skull. Zenobia’s crown, untouched for over two centuries. Phoenix feathers were glued to the leaves. A magnet she could not refuse. It compelled her, summoning her to a dreamscape in which she saw herself with it atop her head. In her mind, courtiers, senators and Excubitores would bow before her while she sat where the Emperor would usually sit. Was it how Vitiatius felt when The Goddess had offered it to him? Such a delight to even hold it in one’s hands, to touch it, to imagine being in the throne room with everyone’s else fixated on the person wearing it.
 
-The bird-thing bit an apple with its human lips. "My dear, even Baba could not possibly envision what you have just done. What are you going to do next?"
+Nix had stripped of her plain tunic. Livia’s underwear had fitted her. Next came the purple dress, still imbued with Livia’s perfume, a dose of vanilla assailing her nose. Touching it, she felt the quality of the tissue, phoenix were sewn on the collar and on the sleeves. Even Baba’s craftsmanship could not hope to match this. #emph[Drachmas always win don’t they?] thought Nix.
 
-Her body placed a finger on her mouth. "Shhh. I just noticed. She can still hear us."
+The mirror was used to apply the touches she had often enhanced Livia with. Black eyeliner derived from snails fished in the North Sea, lipstick made from crushed cochineals, lead, powdered ash and saffron for face powder. They had suited her face more than Livia’s.
 
-"My my, so the spell has not been perfected yet. What a shame."
+Once she had been done, she had seen an Elysian princess looking back at her. Nix had bowed in front of the mirror like Livia would have in front of foreign dignitaries. She had spun around, admiring the authority and elegance this outfit bestowed her with. In the stories of old, there was this one tale of a prince finding out he was the long-lost heir of the Regnassian Empire. While it was impossible in her case, that did not stop her from pondering on that possibility. One became royalty either through steel or by blood. And if Claradore taught her anything was that steel was more reliable than blood.
 
-"She saw you."
+One of her favorite ornaments was a pendant with an amethyst cameo of the Emperor Sarvitar mounted in a gold openwork mount. Her beloved emperor was shown facing in three quarters relief wearing a cuirass. It complemented perfectly her attire. She wore him on her neck, exuding in the false hope that she could be a distant relative of the imperial family.
 
-The bird-thing fed flies to cobblewebs on the corner of the window. "Rest assured, my dear. No one will believe her, not even the Emperor himself."
+Spartak had sniffed her, initially upset by Livia’s scent. She had grabbed its body, bringing it closer to her. It had licked her again. Nix had shown it its favorite ball. #emph[Want to play outside?] Its eyes had lit up with childish amazement. Spartak had sprinted to the vestibule’s door at lightning speed. It emitted high-pitched barks, hitting the door with its paws.
 
-"I’ll exit this, then. We have accomplished what we wanted."
+"Hold on! I need to try something!"
 
-Livia felt her body convulse. She crumbled to the ground, shaking with increasing folly. She screamed, this time sound erupting from her vocal chords. #emph[Free! I am free!] Her eyes teared up as a grotesque bulge was forming on her throat. It began as small as a pear. A searing pain consumed her neck as more and more blood flowed towards the horrible protrusion, swelling it to the size of a melon. #emph[I can’t breathe.]
+#emph[Am I worthy of it like this?] Impatience flowed from the crown next to her. It had called her, this magnet pulling her into its sphere of influence. Were all humans like this, drawn by this desire to see themselves with this ornament? Nix had yanked it from its stand, placing it over her head. Princess now empress stood in front the mirror. Her mother who abandoned her. Would she approve? Or would she wallow in jealousy in her early grave? Nix had wondered. So many questions that could only be answered once she returned to the Gates of the Underworld. The Grimoire of Red said that one who stood before them would reunite with the person that cared the most about them. When she was a child, she had always hoped that her mother would await her then. Now, the most likely candidate was Baba...
 
-In a single instant, she retched a putrid mass of blood. For ten long agonizing seconds, Livia expelled liters if not gallons of foul liquid from herself. The taste. It felt she tasted every member of the human body concentrated in a vile juice. Never had she gagged as much as she did. Her eyes fluttered. The last thing they saw was the bird-thing departing from her window. Her world went black.
+Her favorite painting, this panorama with Empress Zenobia raising her battleaxe over High Cardinal Pius’ head greeted her overhead. Nix had breathed, imagining herself wielding the same weapon, only her arms were not as muscular as Zenobia’s. Magic used another set of muscles after all. She had swung her imaginary axe. Again and again. Cardinal Pius who had enslaved Zenobia and her mother. Pius who started Zenobia’s lifelong quest for justice. Pius whose infamous pleading for his life had been transcribed over and over by Zenobia’s sages. Pius who was responsible for the sacking of the Holy City under the imperial army. One day, Nix would be courageous and paint the Man in White’s face over Pius’ in that painting.
 
-"My Lady is all right? I heard screaming," asked the Elysian dancer at her door.
+She had disappointed herself when she had placed the crown back to its original location.
 
-Livia shot up from her bed, frantically reaching for anything she could use as a weapon. Her body was drenched in urine and sweat. She could hear her own frenzied breathing.
+"It would look good on me. The crown belongs to those who do not seek it, " Nix simply said to Serena.
 
-#emph[What? Was this all a dream?]
+"Your father would have been proud of you," said Serena.
 
-The Elysian. Livia has always found that attire ridiculous. Fully clothed in thick red tunic from head to shoes, a full demonstration of Claradore’s eccentricities. How that girl was supposed to endure the summer heat was beyond Livia’s comprehension. The girl’s eyes though...While Elysian women all looked the same, this one...There was something about her.
+#emph[What is that supposed to mean?]
 
-The Elysians...They had strayed away from The Faith, the worst decision someone could have made. The inability to cross the Gates of Hel...Stranded on the other side, unable to join in your loved ones the afterlife...Oh, if only she could save them...
+The colossal bronze gates vaulted open, bring Nix back to realm of reality. Columns of Men of the Crucible marched in discord. While military marches followed a strict and discernable tempo, this one was inclined in exhibiting a chaotic choir that would have made any general claw their own eyeballs out of their sockets. Armor that resisted the rules of conformity, beards ridden with bread crumbs and banners that had been degraded by sunlight. Their performance might be risible but their numbers were anything but a laughing matter. For this new Cardinal thought it pertinent to bring an escort of two hundred Men of the Crucible.
 
-#emph[Elysians. The gryphons of the desert. Our country’s sworn rival. Why did it have to be this way?]
+The old Cardinal had been nosy, suffice to say. She never understood the point between being a man of The Faith and putting one’s entire slug head in other people’s gardens. It had seemed all those old men did in their spare time was pray or spy on the ordinary of men, plucking petals out of flowers grown by others. Only when the last Cardinal got close to the truth that Claradore asked had tasked her to put him in early retirement.
 
-Livia asked for a bath to be prepared. Somehow, the Elysian dancer already anticipated her request. It was then that Livia recognized her face. She was that puppeteer from earlier and her brother’s tutor. She must have fornicated with Claradore to attain this position. There is no other way. Her name could have been Bix...Rix...Tix...Nix...Pix...probably Mix.
+Today they were introducing to court his new replacement. Someone handpicked by High Cardinal Benedictus and blessed by the Goddess herself. A man by the name of Boniface. Nix wished that boredom defined his character.
 
-"I have had the worst nightmare to date. Let the Magister Herbarum know about it," said Livia.
+It was only when two white cloaked men vaulted into the throne room in unison that 
+she realized that Metarexia sent two not one Cardinals to the imperial capital. 
+But why two? The Faith has always needed only one of them at Thanatopolis.
 
-"Princess, I am again sorry such vile omens plague you, I shall fetch Claradore," said Mix.
+The taller Cardinal hastened his pace. He was an aberration of a human being. At ten imperial feet, even 
+the Excubitores felt like dwarves compared to a man of his stature. He glared at the throne with his tired eyes, eyes that have seen the world wither around them. He was dressed an ill-fitting cloak patterned in silver thread and sewn with singing doves and prancing bulls.
 
-"Tell me before you go...Does magic still exist in the Elysian Empire?"
+His hands could easily fit a man's head within their grasp. His arms were as thick as the trunk of small trees. He held a scepter, the handle having being sculpted in the form of a dove, in his left hand. 
 
-Mix raised an eyebrow. "I do not understand the question, Princess. Everyone knows magic has been extinct for more than a thousand years."
+_A Giant?_ thought Nix. But it could not be. Like their compatriots, the dragons and the Magi, Giants belonged in the Age of Magic. It was Giants who contributed to the Magi's cyclopean structures from upside-down floating pyramids to the opulent libraries of old. Yet none of the court seemed phased by this hulking man. 
 
-"That cannot be true...My dreams...You cannot comprehend what I have dreamed of."
+Nix watched Claradore's face make a brief grimace at the sight of this man. She quizzed him with a glance, wanting to ascertain that this individual was a Giant. 
+The Magister Herboraum quickly reverted to his usual stoical demeanor. 
 
-Mix placed her hand over Livia’s. Glacial. How the Elysian’s touch could be colder than snow? The human body could not be that frigid. "Princess, you should rest easy. Know that should magic truly return, the Faith, the Barbarian Kingdoms, Elysian and Medean Empires, no the Known World, would be in a torrent of unadulterated pain."
+"Your August Majesty," said the Cardinal as he prostrated himself before Ralens the Younger. His voice was akin to stone rupturing.
+
+"Cardinal Alexander, the Empire welcomes your presence in these trying times," said the Emperor.
+
+The shorter Cardinal moved through the hallways, the surrounding air seemed to condense into ice pellets. His gaze, this predatory seeker riveting anyone from this imaginary seat which he had elevated next to the throne. A vulture in dove’s clothing, peering at the phony confessions it could extract from the average citizen.
+
+"Your Grace," said a voice Nix recognized. Her heart raced. Poison coated in eloquence. Raspy, emitting drawn-out hissing sounds disguised as politeness. Immutable after all those years. She had remembered its exact intonation, its exact pronunciation of these fateful words. An eloquence that masked its venom, a charisma conjoined with unrivaled zealotry, an intonation that unnerved her right hand which reached for her concealed dagger.
+
+He had aged, wrinkles now covering his forehead yet that self-righteousness, this despicable zealousness, that confidence, all remained intact. She had never forgotten. White cloak on which were richly drawn resplendent gold doves ripped straight from one of her old encyclopedias. He always hid with the populace, a leech feeding on his own lies. Yet there he stood now in front of her after all those years. Nix wanted to laugh, for the Man in White had returned.
+

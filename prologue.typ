@@ -1,150 +1,91 @@
-Something grabbed the child and the soldiers pursued. 
-Flavius and Theodore held their torches above their crested helmets.
-Their breathing was punctuated by water dripping above. 
+Her eyes opened themselves. Her body boiled. Toes, fingers, tendons, shoulders, everything ached and burned. Livia had never felt this sensation. Empty air escaped her mouth. #emph[What is going on?];. Help. She had to call a handmaiden. None of her muscles responded. Outside, the moon shone, casting a malefic light on her still body. Livia did not understand. Why couldn’t she move?
 
-The child screamed. It must be a crocodile. Flavius clutched his spear. 
-Crocodiles were only native to the province of Noein, but it was not beneath a wealthy patrician to release one in Thanatopolis' sewers.
+Blood. This smell overwhelmed her nose. #emph[Is someone hurt? Am I bleeding?] Yet it was not just blood in the air. An unpalpable, almost undetectable flagrance. Ancient and pernicious through its elusiveness. All of her senses were trying to identify this scent which they should know.
 
-Flavius waved his torch in the never-ending darkness. Arches decorated with gorgon heads greeted his tired eyes. Emperor Constantius had built the capital's sewers to 
-complement the city's aqueduct and possibly to murder those he deemed undesirable. 
-Flavius hoped that getting lost would not get him on the list of those Constantius had erased.
+Her back raised itself. Something like a whip lashed at it. She did not give that order. Her fingers cracked themselves. It felt they had doubled in weight. In fact, her entire body seemed to drag this unseen mass or boulder behind it. #emph[What in the Goddess’ name is happening?] Her body brought her hands before her eyes. Her right hand touched her left hand’s palm. A foreign tingling shook her entire being as if it was the first time her body had touched that area. #emph[Stop!] Akin to a petulant child, her hands went to her waist, her shoulders and then her cheeks, pressing their palms against her skin. A tidal wave of unknown sensitivity struck Livia’s nerves. Never had she imagined her own body to be this reactive to her own touch. It did not make any sense.
 
-"The child must be dead by now. Let us turn back, while we still remember the way we came in," said Theodore. The man had fought in more battles than Flavius' own age.
-At seventy summers, the older guard must have lived through the fall of the Tiarmat Empire in his youth. Flavius asked him numerous questions on that cataclysmic event, one that the Medean Emperor wished to reverse.
+It was only now that she noticed it. Two. She could hear two heartbeats within her body. One beating faster than Medean war drums and the other...The other followed this unsettling beat, one that had no cadence. One whose frequency would madden the calmest of men. A beat that could only be achieved through unnatural means. Magic? Again, her lungs denied her the opportunity to scream.
 
-"We must offer closure to the parents," said Flavius.
+Blood. She could taste it. A bulge within her skin coursing through her veins. This mass of red liquid crawling through the second heart, forcing every orifice of her body to accommodate it. The way it moved within her. It had legs. Eight of them. Akin to a termite colony, it could splinter into dozens if not hundreds of broodlings. Legions of them hatched from discarded shells. They scrambled to her lungs, her stomach, her eyes, her heart and her nose. Blood. Blood and a sour black substance poisoned her tongue. She felt them swarm all over. Crawling in every interstice of her organ, foraging for flesh. They seized everything forcing her to do their bidding. If only she could vomit at the thought of that. When they wished, the broodlings could aggregate again into one fell abomination before slithering to her head, her lungs, her legs, petrifying all of her organs.
 
-"Let the Vigiles take care of the issue. This is no work for Excubitores."
+"It worked..." said Livia’s voice. Livia screeched to no avail, her voice clawing at this invisible barrier.
 
-Flavius' shoulders began to feel the weight of his scaled armor and greaves. 
-He had worn it for sixteen hours. 
+Her body sauntered out of the bed. It jumped with glee, causing the blood bulge to traverse all of her organs at a nightmarish speed. Her stomach churned . Mucus ran from her nose. Her body nonchalantly wiped it with a finger. Livia wished she could faint right now. #emph[Stop it! Goddess save me from this!]
 
-"We must press on," said Flavius.
+"It really worked! I...I can’t believe it! Oh! Baba! If only you could see this!"
 
-Water thrashed in front of them. They raised their lances. Crocodiles were 
-ambush predators. Knowing them, the beast would first sink beneath the waters
-and lunge at them. That was when its teeth would meet scale armor and steel.
+Her body moved towards the mirror. Dishevelled black hair and a sweat soaked body greeted her red eyes. Red eyes...Red as the Medean phoenix. This could not be… Her eyes were blue. Liva saw her agony within those crimson eyes. Eyes which could peer at the depth of someone’s soul. Eyes which brimmed with fanatical determination through their lust for violence. The Brood Mother. #emph[Goddess help me!]
 
-Except, nothing came. Flavius and Theodore could not see a single reptilian 
-retina glittering in the stream.
+"Salutations citizens, my name is Livia and I’m as the Goddess’ cunt!" said her voice as her face extended its tongue in a childish manner. The expressions her visage made...They should not be possible. From mischievous grins to devilish laughs, faces both her mother and father would have scolded her for when she was younger. #emph[Please don’t watch this Goddess! I can’t! I don’t know what is going on!]
 
-"It is afraid. Let us return. It has learned fear," said Theodore.
+Screams, attempts to raise her fists. Nothing worked as her own body cackled by itself, deriding her. This had to be dream. Livia had to wake up. Yes, she should be in Domitian’s arms at this moment. This was just some wicked enchantment conjured by pagans such as those Elysians or Molochians merchants. It had to be.
 
-Theodore screamed. Flavius shed his torch's light behind him. There was a body.
-A man ridden with jaundice floated, his face petrified by horror. Blood ran from 
-his forehead. Flavius shrieked. Whatever killed the man had crunched the upper part of the skull and emptied its inner contents.
+Whatever her body wanted...It gravitated towards her wardrobe. Her eyes were now fixated on that purple cloak that the late Empress Eudoxia once wore during her balls. It was still emblazoned with the Tiarmat hydra. Her fingers ran through the delicate fox hide that comprised the collar of the attire.
 
-_What kind of beast only feeds on the brain?_ thought Flavius.
+"I have always wanted this one," said her voice as her hands scurried to put on the cloak.
 
-Theodore took three steps backward.
+Turning to the mirror, her face snickered.
 
-"We must leave now!" said Theodore.
+"See it does look better on me."
 
-Flavius agreed. They ran. The Emperor had to be informed. The entirety of the 
-Excurbitores had to be sent down to the sewers to investigate. Perhaps that 
-man Claradore would know something. 
+#emph[Goddess save me! A demon resides within me! What have I done to deserve this?]
 
-Tunnel after tunnel appeared before their eyes. Left turn, right turn, forward. They saw the same arches over and over. Was the entrance always so far? 
+The night could not worsen further. Something cawed. A crow with a bald human head appeared on her window. A creature descending straight from beyond the Gates of the Underworld. It sneered at her. Were those teeth even human? Livia did not dare to ask. Impossible. How this monster could exist was beyond the Goddess’ pantheon. The Goddess had ensured mankind that magic was annihilated. Regnant’s entire army purged the Known World of the villainous Magi and their human sacrifices. Nothing made sense in this feverish nightmare. #emph[Domitian will think I am insane for imaginating this!]
 
-"Stop! Stop! This is not the way we came from," said Flavius.
+"You truly have done it, my dear. How long can you hold?" said the monstrosity.
 
-"You mock me! We must keep moving!"
+"You doubt me?" said Livia’s voice.
 
-Flavius' hair raised itself. Shivers crawled on his spine. Another corpse. 
+"That is not the point. There is a reason the Magi had crucified all the people who attempted this... I have seen it myself...The last execution of this kind of miscreant..."
 
-It was the child that had disappeared. His tattered clothes struggled to cover the 
-bruises inflicted on him. The poor sod suffered the same fate as the 
-man from earlier. Flavius was old enough to remember the last time he saw a child's boy 
-in the streets of Thanatopolis. The plague of Anastasian had taken old and young to the 
-Gates of the Underworld. The ugly blemish on his cheek was a reminder of his triumph against the disease.
+"What are dead men’s rules to the living?"
 
-An old woman floated next to the child. The same injury as before. 
+"The blood mingles with one another, my dear...You should never lose sight of yourself."
 
-"The Goddess be damned! How many are there?" said Flavius.
+"Always with the riddles...Has Baba ever told you how predictable you were?"
 
-He should not have asked that question. A third body appeared, this time covered 
-in maggots. The smell of death permeated the stagnant air. 
+#emph[Who is this Baba? Magi? The Goddess liberated this world of the Magi a thousand years ago!]
 
-"A creature could not have done this," said Theodore. Flavius nodded in agreement.
+The bird-thing bit an apple with its human lips. "My dear, even Baba could not possibly envision what you have just done. What are you going to do next?"
 
-"You are correct. A crocodile's meal can last for weeks."
+Her body placed a finger on her mouth. "Shhh. I just noticed. She can still hear us."
 
-"Who else then?"
+"My my, so the spell has not been perfected yet. What a shame."
 
-Theodore rummaged through his beard styled in the manner of the Rauthengardian nobility.
+"She saw you."
 
-"A butcher of men..." said Flavius.
+The bird-thing fed flies to cobblewebs on the corner of the window. "Rest assured, my dear. No one will believe her, not even the Emperor himself."
 
-"That is good news."
+"I’ll exit this, then. We have accomplished what we wanted."
 
-Flavius shot Theodore a dumbfounded look.
+Livia felt her body convulse. She crumbled to the ground, shaking with increasing folly. She screamed, this time sound erupting from her vocal chords. #emph[Free! I am free!] Her eyes teared up as a grotesque bulge was forming on her throat. It began as small as a pear. A searing pain consumed her neck as more and more blood flowed towards the horrible protrusion, swelling it to the size of a melon. #emph[I can’t breathe.]
 
-"We can bring him to justice and make a name for ourselves, Flavius," continued Theodore.
+In a single instant, she retched a putrid mass of blood. For ten long agonizing seconds, Livia expelled liters if not gallons of foul liquid from herself. The taste. It felt she tasted every member of the human body concentrated in a vile juice. Never had she gagged as much as she did. Her eyes fluttered. The last thing they saw was the bird-thing departing from her window. Her world went black.
 
-Flavius imagined the Emperor's reward for bringing such a vile being to court.
-They could have statues of them commissioned by the finest artists in the Empire. 
-Their pension could double no triple from this deed. Flavius would be able to 
-afford a villa from his wife, Drusilla. They would retire from the capital's noise and farm cabbages.
+"My Lady is all right? I heard screaming," asked the Elysian dancer at her door.
 
-"We shall be rich!" said Flavius.
+Livia shot up from her bed, frantically reaching for anything she could use as a weapon. Her body was drenched in urine and sweat. She could hear her own frenzied breathing.
 
-"A criminal cannot hope to win against two Excubitores," said Theodore.
+#emph[What? Was this all a dream?]
 
-No man could hope to defeat an Excubitores in single combat. Only the elite 
-Elysian Vodrath Ansar and the Rauthengardian Hearthguards could compete with 
-the best of the Empire's foot soldiers. 
+The Elysian. Livia has always found that attire ridiculous. Fully clothed in thick red tunic from head to shoes, a full demonstration of Claradore’s eccentricities. How that girl was supposed to endure the summer heat was beyond Livia’s comprehension. The girl’s eyes though...While Elysian women all looked the same, this one...There was something about her.
 
-Theodore went on ahead, vaulting over the corpses. Flavius followed suit. 
-It was not his intent to spend a night in this murderer's haven. They would drag 
-the vermin's hide from his den and expose his vile deeds to the populace.
-If they were lucky enough, the Emperor would grant them a public execution. 
-Flavius' blood grew excited at the thought of seeing the butcher of men's head 
-fly across the Hippodrome. The Medean crowd's applause was bliss to his ears.
+The Elysians...They had strayed away from The Faith, the worst decision someone could have made. The inability to cross the Gates of Hel...Stranded on the other side, unable to join in your loved ones the afterlife...Oh, if only she could save them...
 
-A screeching hiss interrupted their run. Flavius froze, his legs struggling to obey 
-his mind. In front of them stood a mockery of a human head attached to a long neck.
-The thing extended its seemingly human tongue towards them. 
+#emph[Elysians. The gryphons of the desert. Our country’s sworn rival. Why did it have to be this way?]
 
-His grandmother had told him the tale of the Hydra, this being the Magi had created 
-for their wars during the Age of Magic. It could not be true. The Age of Magic had 
-ended a millennium ago. All Hydras should be extinct.
+Livia asked for a bath to be prepared. Somehow, the Elysian dancer already anticipated her request. It was then that Livia recognized her face. She was that puppeteer from earlier and her brother’s tutor. She must have fornicated with Claradore to attain this position. There is no other way. Her name could have been Bix...Rix...Tix...Nix...Pix...probably Mix.
 
-Flavius' lance shook uncontrollably in his hands. The unmistakable sign that magic had 
-returned stood before his very eyes. 
+"I have had the worst nightmare to date. Let the Magister Herbarum know about it," said Livia.
 
-"For Emperor Ralens!" bellowed Theodore as he threw his spear at the creature. It caught the projectile with its teeth which now imitated a human sneer. Bloodthirsty 
-and intelligent were the two attributes you did not want in a predator.
+"Princess, I am again sorry such vile omens plague you, I shall fetch Claradore," said Mix.
 
-The Hydra splintered the lance in two. 
+"Tell me before you go...Does magic still exist in the Elysian Empire?"
 
-Theodore charged, bashing his shield against the head. The monster snarled in pain.
+Mix raised an eyebrow. "I do not understand the question, Princess. Everyone knows magic has been extinct for more than a thousand years."
 
-"Come, Flavius!" yelled Theodore.
+"That cannot be true...My dreams...You cannot comprehend what I have dreamed of."
 
-Hydras had reappeared. To Flavius, the Goddess' teachings were clear: the day the Magi returned signalled the beginning of the end.
-The Apocalypse dawned on mankind. He had to tell his wife and children.
-
-"Flavius! Flavius!"
-
-"I am coming! I am coming!"
-
-Theodore unsheathed his sword. He hacked the abomination's head. Blood splattered on 
-Theodore's chainmail armor. A strident whistling erupted from the lump that became the monster's head. Flesh sprouted from the morbid injury. Two new heads emerged. Theodore 
-cursed. _Mother help me_, thought Flavius.
-
-"Flavius! Get your arse over here at once!"
-
-"Yes!"
-
-Flavius took a step forward before turning away from Theodore. His legs carried him away from the duel. 
-Behind him, steel collided with teeth. It was not the duty of men to face this vile 
-creature.
-
-Flavius reared his head. Blood seeped from Theodore's upper torso. The Hydra 
-picked the Excubitores with its tentacles. Theodore's legs flailed helplessly.
-His helmet fell in the bloodied waters. A loud crunch reverberated through the sewer's corridors. Bone snapped. The beast opened its human mouth and bit 
-its prey's head. Theodore's headless torso fell in the waters.
-
-Flavius screamed. He ran into utter blackness, crying out the Goddess' name.
+Mix placed her hand over Livia’s. Glacial. How the Elysian’s touch could be colder than snow? The human body could not be that frigid. "Princess, you should rest easy. Know that should magic truly return, the Faith, the Barbarian Kingdoms, Elysian and Medean Empires, no the Known World, would be in a torrent of unadulterated pain."
 
 

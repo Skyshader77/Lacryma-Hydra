@@ -1,102 +1,63 @@
-In the history books, it would have taken climbing a mountain of skulls to achieve this. The ability to tame fate had been reserved exclusively to the Goddess and the purple born. To them, it was the Heavens’ mandate to forge a better world for their denizens. Elysians, Rauthengardians, Cachalots, Medeans, clergymen, courtiers with their varied costumes assembled beneath the imperial throne centered around four fire pots used to clean its dried phoenix feathers. Servants held the plumes with pincers over the brazier, the phoenix’ remains glittering above the flames. #emph[The phoenix shall always resurrect.]
+"Do you have candy?" asked the boy who must have been twelve summers at most.
 
-Frescoes detailing the Empire’s past victories against the Donians unwinded before any visitor. Nix had once touched the painted marble, letting her mind travel through time. From Emperor Marro reuniting the Tiarmat and Medean Empires one last time to the desperate struggle against Molochian hordes, the memories of the elders resurfaced through art. They had always succeeded in rocking Nix within her present hammock, singing songs of bravery and treason.
+Serena handed him the treat. The boy and two other accomplices had snuck into the dromon which prow she sat on. The dockyards overflowed with these unfinished warships. Claradore’s new decree had doubled the expenditures for the Medean army.
 
-The first man entered the titanic bronze gates, rows of Excubitores struck the pristine floor, announcing his coming. Mechanical birds sang. Some were as small as a fist. Others were as large as a melon. When one pulled a string on their back, they would emit the exact same noise as a real life bird. Most of the time, they would be found on the tree of gilt bronze in front of the Emperor’s throne. Another invention used to wow the barbarian emissaries that would waddle in court. Today, Nix asked her pupil to display one that showed a house standing on mushrooms with an old lady in front of it. A young girl was running away from a bear next to the home while carrying what appeared to be a fish in her hands.
+Today was supposed to be Nix’ birthday, yet Serena’s friend had been preoccupied by trivial matters, leaving Serena alone to throw rocks at the North Sea on this moonless evening. When Nix joined her, they would indulge in this contest to determine who would cook dinner for the night. Yesterday, Nix had decided to not conform to the rules, transforming her hand into this slingshot that could launch pebbles up to one imperial mile away.
 
-The father and the mother, ragged farmers from the capital’s outskirts, came before the Emperor with their son. The child toddled in awe of the grandiose architecture before stopping in front of her elevated throne illuminated by the building’s oculus. He charmed the ranks of noblewomen eyeing him with affection. The little one’s pupils loitered around the coffered concrete dome. Above, constellations were mapped via glintstones on the ceiling.
+"Didn’t you agree not to use magic for this, Phoenix Wing?"
 
-"I too was impressed like you, little one, by these. Have you seen our collection of statues? Emperor Tiarmat wrestling a bull can also help foster your imagination." Nix mused. "How may the crown guide you today, my dear?"
+"It is not magic, it is a special alteration of my arm."
 
-The man lunged forward, shoving his child aside. "Milord, this whore cheated on me for a low life scoundrel. I am divorcing her; the boy belongs to me by right. He is old enough to work on my fields," said the man, his bloodshot eyes darting his bruised wife.
+"Who are you now? A professor of the Classical Tongue? Magic is magic."
 
-"Your August Majesty, please, I had no choice: I needed money. He spent it all on alcohol and prostitutes."
+"I am who I desire to be," said Nix. In response, Serena had pulled Nix’ cheeks with such force that Nix might have liquified on the spot. Once they had resolved their discussion on terminology, Nix had begrudgingly roasted the mutton Claradore had hunted for them, resulting in skewers with orange peppers and olives. Serena had to celebrate these victories while they were still easy to come. The day has yet to come.
 
-"Wench! See milord, the whore lies in front of you! You have all the evidence of her debauchery. The boy must be mine!"
+The sound of water splashing made her turn her head towards someone whose hands were thrashing in the North Sea. The boy. His gremlin friends yelped. Predictable. The older she became, the more she noticed the predictability children’s of personalities no matter the age. As watching over humans was identical to gardening, some children’s defining traits fell into mosses, others into ferns, flowering plants or non-flowering plants. Then, by observing their inner nature, they could fall into one of the multiple species Serena had cultivated. Never had Serena failed to associate a child by its plant. Surprise was missing from her long existence. That was until Nix and Claradore had come.
 
-"I see the matter relates to the custody of your son. As the divine representative of the Goddess on the mortal plane, I will provide guidance for you. Do you swear by the Goddess you shall respect my decision?" said Ralens in the Classical Tongue. #emph[Flawless discourse.] The fruits of laborious nights spent rehearsing this type of answer grew from the throne. Nix picked one, savoring its sour taste.
+The boy in the North Sea strayed further and further away from Serena’s vision. One of his fellow accomplices kept his finger on his friend’s location while the other yelled in the deserted dockyards.
 
-Both parents acquiesced his words. Ralens turned to Nix.
+"Goddess! Goddess! Help him!" screamed the gremlin. Serena stood up on the dromon’s prow. She felt her blood converge towards her back. Perhaps she would feel generous today.
 
-"Then let’s proceed. You two have proven unable to safeguard your son. The crown shall buy the boy from you to relieve you from this burden. He will work in the palace’s gardens, a starting place for a prosperous career at court, no? Four sheep and two cows for the boy!" Nix announced to the surprised court. She found Serena hiding behind an Excubitore’s purple cloak. Her friend put a finger on her mouth. Mischief would run rampant as her hands wandered around the deep pockets she had access to.
+Children of all ages would always underestimate the current. One wrong move in the sea, and it would devour you as it did with the Sunken Continent. Another case of parental failure and of the child not heeding his parents’ advice.
 
-"No, please! He is my child!" begged the mother.
+With her wings she could have done it. The two accomplices who had followed the boy screamed frantically, hoping an Excubitore or a heroic passerby would undo this preventable tragedy. Alas, life was never a fairy tale and this was what rendered life the most gorgeous and the most monotonous creation the Forgotten Gods had ever bestowed on this world. Better a lesson learned through blood than to receive a token of ingratitude.
 
-"Seven sheep and five cows," said the father. #emph[Let’s play.]
+When all that remained was the sea’ murderous calmness, the two accomplices sobbed the same way Nix had when she had lost the Nameless Slave. Serena yawned.
 
-"Five sheep and three cows."
+Was it all a mistake? What was done could never be undone. Serena had resented herself for overestimating men. They would use the Goddess’ name to hide behind their evil. They would babble about the Gospel to tame the masses the Goddess had freed. They would abhor change in the name of idiotic traditions. They could ignite wars without magic. For the Goddess became the magic of the Age of Man. Yet with magic, men could fly. Men could see the sun while resting their necks on clouds. Who had never wished they could fall asleep on a nimbus, their misty surface being the perfect bed. With magic, water could be solidified when touched by one’s blood allowing men run on water, feeling their feet bounce on the surface of lakes and seas. Nix and Claradore had reminded Serena of how much the Goddess had taken away from the world.
 
-"Stop! Please! You can’t do this! My baby is not for sale!"
+#emph[I have been a fool, haven’t I, Erfan?]
 
-"Six sheep and four cows," continued the man.
+"We were all fools," had said the Nameless Slave nineteen summers ago in her house built atop mushrooms. Serena had never thought she had it in her, to retire to a secluded location away from men who now waged war on themselves without magic.
 
-"Six sheep and four cows for the boy it is!" she proclaimed much to the delight of the father. At the sight of the mother’s utter dismay and the boy’s incomprehension, she beamed a radiant smile none associated with deceit. "You will not fetch this sum. The crown has decided that the boy belongs to his mother. He who sells his children to another is unworthy of parenthood."
+"Better fools than helots," had answered Serena in the Forgotten Tongue. She had been invited to savor one of the Nameless Slave’ new recipes involving a catfish roasted with ginger, thymes and black pepper.
 
-A serenade of gasps crossed the court. The farmer’s despair was one she would cherish for the rest of her years.
+"Are we not still helots? Trapped in this prison of immortality that you have built for both of us."
 
-"Thank you! Thank you! May the True Goddess reward your kindness Your August Majesty!" bowed the woman. Jubilant noblewomen hailed the decision. Serena joined the applause, yelling Nix’ name. "Victory! Victory! Victory! Victory!" they clamored in unison.
+"You can always fall on your sword, Slave."
 
-Serena smacked Nix’ hands in the restroom. "I have never thought you had an affinity for this, pumpkin face!"
+"The Nameless Slave might have done so, but she no longer exists. I have been known as Baba for three centuries now."
 
-"It is all Claradore’s wisdom."
+"Baba? How intriguing. Is that it will address you, this Magi that you are hiding from me? What is its name?"
 
-Serena snatched her hands, pulling her closer to her. Vanilla, heavy with notes of lavender, rosemary and thyme. In fact, Nix knew who this perfume belonged to. Only one woman in the Known World could wear it: the Medean Empress. Serena’s boldness fascinated her. "Modesty won’t save you from me. Don’t you wish for it too? Sitting in the Emperor’s seat?" said Serena.
+"Nix," said the Nameless Slave, her voice cracked, her face whitening under the pressure of Serena’s words. The Nameless Slave has grown attached to a Magi. Absurd. Change had not been a feature of their design. Nix. That name. Why had that name been chosen? The newborn Magi was unaware that her life had already been decided when she had first crossed Serena’s path.
 
-What was the answer Serena had hoped to acquire? What would Nix tell her? That she had locked herself in a deserted exhibition room with Spartak, one she knew all too well. Then, she had also surrendered to her own habit: borrowing Livia’s clothes which littered the floor of the princess’ room, her jewels glistening against moonlight intruding from the window. Carnation, fuchsia, purple, rose, cyan, turquoise, teal, white. When opening the princess’ closet, Nix could swear all colors constituting a rainbow were paraded in front of her eyes. The worst slight of it all was that most if not all of these dresses and tunics would only see the day of light once.
+"Bring her to me,"
 
-She had been enamored with exhibition room since the first time Claradore had brought her here. In the middle stood the object of her desires, the oak leaves crown with a ruby diadem laying on top of a dragon’s skull. Zenobia’s crown, untouched for over two centuries. Phoenix feathers were glued to the leaves. A magnet she could not refuse. It compelled her, summoning her to a dreamscape in which she saw herself with it atop her head. In her mind, courtiers, senators and Excubitores would bow before her while she sat where the Emperor would usually sit. Was it how Vitiatius felt when The Goddess had offered it to him? Such a delight to even hold it in one’s hands, to touch it, to imagine being in the throne room with everyone’s else fixated on the person wearing it.
+"Will I have to build a small coffin if I do?"
 
-Nix had stripped of her plain tunic. Livia’s underwear had fitted her. Next came the purple dress, still imbued with Livia’s perfume, a dose of vanilla assailing her nose. Touching it, she felt the quality of the tissue, phoenix were sewn on the collar and on the sleeves. Even Baba’s craftsmanship could not hope to match this. #emph[Drachmas always win don’t they?] thought Nix.
+"A command is a command, Slave."
 
-The mirror was used to apply the touches she had often enhanced Livia with. Black eyeliner derived from snails fished in the North Sea, lipstick made from crushed cochineals, lead, powdered ash and saffron for face powder. They had suited her face more than Livia’s.
+Serena had surprised herself by leaving the house with clean hands. Growing senile had made her teeter towards irrationality.
 
-Once she had been done, she had seen an Elysian princess looking back at her. Nix had bowed in front of the mirror like Livia would have in front of foreign dignitaries. She had spun around, admiring the authority and elegance this outfit bestowed her with. In the stories of old, there was this one tale of a prince finding out he was the long-lost heir of the Regnassian Empire. While it was impossible in her case, that did not stop her from pondering on that possibility. One became royalty either through steel or by blood. And if Claradore taught her anything was that steel was more reliable than blood.
+The night before, Nix had sought her medallion which had mysteriously disappeared. From the ground below, Serena had the honor of witnessing the finesse of Nix’ flight. Moonlight had shimmered on the girl’s crimson wings as they flapped under the starry night. An astray phoenix she was looking for a nest she never had, a flock long extinct. If Nix had known the truth, would she blame Serena? No, she would understand. Serena had no choice. The Gatekeeper had created Nix in the image of that woman, one whose legs had enlaced with Serena’s, one whose lush lips tasted like wine, one whose eyes burned with resentment on that terrible day.
 
-One of her favorite ornaments was a pendant with an amethyst cameo of the Emperor Sarvitar mounted in a gold openwork mount. Her beloved emperor was shown facing in three quarters relief wearing a cuirass. It complemented perfectly her attire. She wore him on her neck, exuding in the false hope that she could be a distant relative of the imperial family.
+Serena had put the coruscating lance she had found for Nix’ birthday on the bed.
 
-Spartak had sniffed her, initially upset by Livia’s scent. She had grabbed its body, bringing it closer to her. It had licked her again. Nix had shown it its favorite ball. #emph[Want to play outside?] Its eyes had lit up with childish amazement. Spartak had sprinted to the vestibule’s door at lightning speed. It emitted high-pitched barks, hitting the door with its paws.
+"Happy birthday, Phoenix Wing," she whispered quietly to the empty bed.
 
-"Hold on! I need to try something!"
+Nix’ encyclopedias and archives could never do the weapon justice for it was Regnant the Dragonslayer’s weapon, the same he had used to slay the Last Dragon. Serena would tell Nix that it was an eerily accurate replica, her friend being none the wiser. Acquiring it had required Serena to fly through a phantasmagoria of nostalgia and sorrow for Serena’s white wings had carried her to the lands of crags and sequoias. Now known as part of the Unknown world for the present civilizations, this nature preserve used to teem with fallen kingdoms. During her second childhood with Nix, they had spoken about the tales never told in the past. Tales they were not to Serena. Her blood and tears had forged the words the scribes had scrambled to write on parchments as they had followed her trail of glory. The Nameless Slave had been there, chronicling each deed and so-called miracle before Serena had made the mistake of emancipating her.
 
-#emph[Am I worthy of it like this?] Impatience flowed from the crown next to her. It had called her, this magnet pulling her into its sphere of influence. Were all humans like this, drawn by this desire to see themselves with this ornament? Nix had yanked it from its stand, placing it over her head. Princess now empress stood in front the mirror. Her mother who abandoned her. Would she approve? Or would she wallow in jealousy in her early grave? Nix had wondered. So many questions that could only be answered once she returned to the Gates of the Underworld. The Grimoire of Red said that one who stood before them would reunite with the person that cared the most about them. When she was a child, she had always hoped that her mother would await her then. Now, the most likely candidate was Baba...
+Dragon bones and skulls littered the forest that had once been razed by their fire, their carrion breath lingering in Serena’s nose for years. The Magi could breed these flying creatures whose wingspan shrouded hills and mountains. Armies had melted under their might, unable to pierce their hardened scale. Serena had witnessed the day the non-Magi turned the tides against their Magi overlords. With the power of her betrayal, they had disintegrated the mightiest of dragons with lightning bolts the Goddess had conjured. Such was the elation her, the Goddess and her men had felt when it had finally been accomplished, when man had been freed from magic, when the Age of Man had begun under the Goddess’ name.
 
-Her favorite painting, this panorama with Empress Zenobia raising her battleaxe over High Cardinal Pius’ head greeted her overhead. Nix had breathed, imagining herself wielding the same weapon, only her arms were not as muscular as Zenobia’s. Magic used another set of muscles after all. She had swung her imaginary axe. Again and again. Cardinal Pius who had enslaved Zenobia and her mother. Pius who started Zenobia’s lifelong quest for justice. Pius whose infamous pleading for his life had been transcribed over and over by Zenobia’s sages. Pius who was responsible for the sacking of the Holy City under the imperial army. One day, Nix would be courageous and paint the Man in White’s face over Pius’ in that painting.
-
-She had disappointed herself when she had placed the crown back to its original location.
-
-"It would look good on me. The crown belongs to those who do not seek it, " Nix simply said to Serena.
-
-"Your father would have been proud of you," said Serena.
-
-#emph[What is that supposed to mean?]
-
-The colossal bronze gates vaulted open, bring Nix back to realm of reality. Columns of Men of the Crucible marched in discord. While military marches followed a strict and discernable tempo, this one was inclined in exhibiting a chaotic choir that would have made any general claw their own eyeballs out of their sockets. Armor that resisted the rules of conformity, beards ridden with bread crumbs and banners that had been degraded by sunlight. Their performance might be risible but their numbers were anything but a laughing matter. For this new Cardinal thought it pertinent to bring an escort of two hundred Men of the Crucible.
-
-The old Cardinal had been nosy, suffice to say. She never understood the point between being a man of The Faith and putting one’s entire slug head in other people’s gardens. It had seemed all those old men did in their spare time was pray or spy on the ordinary of men, plucking petals out of flowers grown by others. Only when the last Cardinal got close to the truth that Claradore asked had tasked her to put him in early retirement.
-
-Today they were introducing to court his new replacement. Someone handpicked by High Cardinal Benedictus and blessed by the Goddess herself. A man by the name of Boniface. Nix wished that boredom defined his character.
-
-It was only when two white cloaked men vaulted into the throne room in unison that 
-she realized that Metarexia sent two not one Cardinals to the imperial capital. 
-But why two? The Faith has always needed only one of them at Thanatopolis.
-
-The taller Cardinal hastened his pace. He was an aberration of a human being. At ten imperial feet, even 
-the Excubitores felt like dwarves compared to a man of his stature. He glared at the throne with his tired eyes, eyes that have seen the world wither around them. He was dressed an ill-fitting cloak patterned in silver thread and sewn with singing doves and prancing bulls.
-
-His hands could easily fit a man's head within their grasp. His arms were as thick as the trunk of small trees. He held a scepter, the handle having being sculpted in the form of a dove, in his left hand. 
-
-_A Giant?_ thought Nix. But it could not be. Like their compatriots, the dragons and the Magi, Giants belonged in the Age of Magic. It was Giants who contributed to the Magi's cyclopean structures from upside-down floating pyramids to the opulent libraries of old. Yet none of the court seemed phased by this hulking man. 
-
-Nix watched Claradore's face make a brief grimace at the sight of this man. She quizzed him with a glance, wanting to ascertain that this individual was a Giant. 
-The Magister Herboraum quickly reverted to his usual stoical demeanor. 
-
-"Your August Majesty," said the Cardinal as he prostrated himself before Ralens the Younger. His voice was akin to stone rupturing.
-
-"Cardinal Alexander, the Empire welcomes your presence in these trying times," said the Emperor.
-
-The shorter Cardinal moved through the hallways, the surrounding air seemed to condense into ice pellets. His gaze, this predatory seeker riveting anyone from this imaginary seat which he had elevated next to the throne. A vulture in dove’s clothing, peering at the phony confessions it could extract from the average citizen.
-
-"Your Grace," said a voice Nix recognized. Her heart raced. Poison coated in eloquence. Raspy, emitting drawn-out hissing sounds disguised as politeness. Immutable after all those years. She had remembered its exact intonation, its exact pronunciation of these fateful words. An eloquence that masked its venom, a charisma conjoined with unrivaled zealotry, an intonation that unnerved her right hand which reached for her concealed dagger.
-
-He had aged, wrinkles now covering his forehead yet that self-righteousness, this despicable zealousness, that confidence, all remained intact. She had never forgotten. White cloak on which were richly drawn resplendent gold doves ripped straight from one of her old encyclopedias. He always hid with the populace, a leech feeding on his own lies. Yet there he stood now in front of her after all those years. Nix wanted to laugh, for the Man in White had returned.
-
+The Nameless Slave’s question about the tiny coffin had lingered in Serena’s mind for the past eight years. Centuries ago, that question would have been valid. The first Magi born in a millennium. Somehow, Serena found herself envious. It was true. Life without Magi had worn her.

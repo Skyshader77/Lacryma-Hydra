@@ -18,6 +18,9 @@
   v(1em)
 }
 
+= Prologue
+#include "prologue.typ"
+
 = Chapter 1
 #include "chapter1.typ"
 
@@ -43,24 +46,24 @@
 = Chapter 11
 #include "chapter10.typ"
 = Chapter 12
-#include "chapter11-0.typ"
+#include "chapter11.typ"
 = Chapter 13
 #include "chapter11-1.typ"
 = Chapter 14
-#include "chapter12-1.typ"
+#include "chapter12.typ"
 = Chapter 15
 #include "chapter13.typ"
-= Chapter 16
+= Chapter 14
 #include "chapter14.typ"
-= Chapter 17
+= Chapter 15
 #include "chapter15.typ"
-= Chapter 18
+= Chapter 16
 #include "chapter16.typ"
-= Chapter 19
-#include "chapter16-1.typ"
-= Chapter 20
+= Chapter 17
 #include "chapter17.typ"
-= Chapter 21
+= Chapter 18
 #include "chapter18.typ"
+= Chapter 19
+#include "chapter19.typ"
 
 
