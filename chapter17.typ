@@ -125,5 +125,21 @@ A being with white swan wings descended from the sky. An angel? A woman?
 Her plumage could have made moonlight a second sun. It brightened the starless night, 
 inundating the cemetery in overwhelming light. Nix did not care if she would become blind from witnessing such a miracle. In the history of the Known World, only one being could radiate as majestically as this one. 
 
-The figure levitated in the air, slowly losing altitude. Cardinal Alexander uttered a litany of profanities at it. Soon, the entity's visage would be visible. Nix was curious to see it, a face that all of the Faithful's paintings and sculptures struggled to recreate. A smile she knew all too well was the first thing that the figure showed her. Nix would have gasped if blisters had not consumed her lips. For Serena has appeared.
+The figure levitated in the air, slowly losing altitude. Cardinal Alexander uttered a litany of profanities at it. Soon, the entity's visage would be visible. Nix was curious to see it, a face that all of the Faithful's paintings and sculptures struggled to recreate. A smile she knew all too well was the first thing that the figure showed her. Nix would have gasped if blisters had not consumed her lips. There were too many questions that this appearance raised. 
+
+_Was this a dream?_ thought Nix.
+
+The angel landed, flashing the same cheerful smile again. 
+
+"We have much to talk about after this," said the angel. The newcomer whistled. Spartak came. Nix let herself fall on its back. Rest. She needed a long rest. 
+
+"Don't you dare deny me my prize," spat Alexander.
+
+"You above all men know the price of defiance."
+
+"You would threaten me?"
+
+"I have already worked my craft upon you. Consider a warning a kindness I need not extend."
+
+Whether this was a dream of not, what she saw could not be erased from her mind. Serena has appeared. The last thing her vision saw was Serena conjuring halos from her palms.
 
