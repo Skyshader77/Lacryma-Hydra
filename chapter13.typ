@@ -70,7 +70,7 @@ She had disappointed herself when she had placed the crown back to its original 
 
 #emph[What is that supposed to mean?]
 
-The colossal bronze gates vaulted open. Columns of Men of the Crucible marched in discord. While military marches followed a strict and discernable tempo, this one was inclined in exhibiting a chaotic choir that would have made any general claw their own eyeballs out of their sockets. Armor that resisted the rules of conformity, beards ridden with bread crumbs and banners that had been degraded by sunlight. Their performance might be risible but their numbers were anything but a laughing matter. For this new Cardinal thought it pertinent to bring an escort of two hundred Men of the Crucible.
+The colossal bronze gates vaulted open, bring Nix back to realm of reality. Columns of Men of the Crucible marched in discord. While military marches followed a strict and discernable tempo, this one was inclined in exhibiting a chaotic choir that would have made any general claw their own eyeballs out of their sockets. Armor that resisted the rules of conformity, beards ridden with bread crumbs and banners that had been degraded by sunlight. Their performance might be risible but their numbers were anything but a laughing matter. For this new Cardinal thought it pertinent to bring an escort of two hundred Men of the Crucible.
 
 The old Cardinal had been nosy, suffice to say. She never understood the point between being a man of The Faith and putting one’s entire slug head in other people’s gardens. It had seemed all those old men did in their spare time was pray or spy on the ordinary of men, plucking petals out of flowers grown by others. Only when the last Cardinal got close to the truth that Claradore asked had tasked her to put him in early retirement.
 
@@ -80,12 +80,17 @@ It was only when two white cloaked men vaulted into the throne room in unison th
 she realized that Metarexia sent two not one Cardinals to the imperial capital. 
 But why two? The Faith has always needed only one of them at Thanatopolis.
 
-The taller Cardinal hastened his pace. He was an aberration of a human being. At eight imperial feet, even 
+The taller Cardinal hastened his pace. He was an aberration of a human being. At ten imperial feet, even 
 the Excubitores felt like dwarves compared to a man of his stature. He glared at the throne with his tired eyes, eyes that have seen the world wither around them. He was dressed an ill-fitting cloak patterned in silver thread and sewn with singing doves and prancing bulls.
 
-Nix watched Claradore's face make a brief grimace at the sight of this man. The Magister Herboraum quickly reverted to his usual stoical demeanor. 
+His hands could easily fit a man's head within their grasp. His arms were as thick as the trunk of small trees. He held a scepter, the handle having being sculpted in the form of a dove, in his left hand. 
 
-"Your August Majesty," said the Cardinal as he prostrated himself before Ralens the Younger.
+_A Giant?_ thought Nix. But it could not be. Like their compatriots, the dragons and the Magi, Giants belonged in the Age of Magic. It was Giants who contributed to the Magi's cyclopean structures from upside-down floating pyramids to the opulent libraries of old. Yet none of the court seemed phased by this hulking man. 
+
+Nix watched Claradore's face make a brief grimace at the sight of this man. She quizzed him with a glance, wanting to ascertain that this individual was a Giant. 
+The Magister Herboraum quickly reverted to his usual stoical demeanor. 
+
+"Your August Majesty," said the Cardinal as he prostrated himself before Ralens the Younger. His voice was akin to stone rupturing.
 
 "Cardinal Alexander, the Empire welcomes your presence in these trying times," said the Emperor.
 

@@ -11,3 +11,17 @@ That was not reassuring. the thing called Serena had hovered in the air, winds h
 "Will he find us?"
 
 "In the long term, yes. In the short term, no."
+
+"He was a Giant."
+
+The Artifice bit a pear with its human teeth. "I am aware of that."
+
+"And you never bothered to inform me?"
+
+"You know the stories. It is hard to believe that one of them still lived, my dear."
+
+"And Serena, the Goddess? You also knew."
+
+"Her intentions had always been a riddle."
+
+
