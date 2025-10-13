@@ -42,28 +42,26 @@
 = Chapter 9
 #include "chapter9.typ"
 = Chapter 10
-#include "chapter10-0.typ"
-= Chapter 11
 #include "chapter10.typ"
-= Chapter 12
+= Chapter 11
 #include "chapter11.typ"
-= Chapter 13
+= Chapter 12
 #include "chapter11-1.typ"
-= Chapter 14
+= Chapter 13
 #include "chapter12.typ"
-= Chapter 15
-#include "chapter13.typ"
 = Chapter 14
-#include "chapter14.typ"
+#include "chapter13.typ"
 = Chapter 15
-#include "chapter15.typ"
+#include "chapter14.typ"
 = Chapter 16
-#include "chapter16.typ"
+#include "chapter15.typ"
 = Chapter 17
-#include "chapter17.typ"
+#include "chapter16.typ"
 = Chapter 18
-#include "chapter18.typ"
+#include "chapter17.typ"
 = Chapter 19
+#include "chapter18.typ"
+= Chapter 20
 #include "chapter19.typ"
 
 
