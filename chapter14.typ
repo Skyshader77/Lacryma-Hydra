@@ -36,7 +36,7 @@ A serenade of gasps crossed the court. The farmer’s despair was one she would 
 
 "Thank you! Thank you! May the True Goddess reward your kindness Your August Majesty!" bowed the woman. Jubilant noblewomen hailed the decision. Serena joined the applause, yelling Nix’ name. "Victory! Victory! Victory! Victory!" they clamored in unison.
 
-Serena smacked Nix’ hands in the restroom. "I have never thought you had an affinity for this, pumpkin face!"
+Serena smacked Nix’ hands in the restroom. "I have never thought you had an affinity for this, Phoenix Wing!"
 
 "It is all Claradore’s wisdom."
 

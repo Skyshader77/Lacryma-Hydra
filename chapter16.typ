@@ -10,7 +10,7 @@ She and Spartak arrived at the doors of the Church of Holy Sacrimony whose walls
 
 Someone stepped on her tail. Spartak barked cheerfully, treacherously wagging his tail at Serena who shone with exuberance tonight. #emph[So much from man’s best friend.]
 
-"Apologies, pumpkin face, I did not mean to startle you," said Serena as she looked at the vial of gray liquid carried by Nix. Nix meowed angrily. She and Claradore had spent the better part of the afternoon brewing this inodorous concoction from ingredients which names had long changed from the days of the Grimoire of Red.
+"Apologies, Phoenix Wing, I did not mean to startle you," said Serena as she looked at the vial of gray liquid carried by Nix. Nix meowed angrily. She and Claradore had spent the better part of the afternoon brewing this inodorous concoction from ingredients which names had long changed from the days of the Grimoire of Red.
 
 "And where do you think you are going with that?"
 
@@ -26,7 +26,7 @@ In the nave, eunuchs sat in the seats praying at the discolored statue of the Go
 
 #emph[What is she doing here?]
 
-"I’ll take care of this for you, pumpkin face," whispered Serena as she took the vial from Nix’ neck. Nix purred. Separation of concerns had been the hallmark of her friendship with Serena. Her friend had guessed that the vial should be poured into the church’s fountain, the one that collected water from Charov’s Aqueduct. When one was faced with a fortress, one had to convince the defenders of abandoning their stronghold. Such was the doctrine the great Sarvitar had followed during his conquests of the modern day Clovian Domain. The Commentaries, his illustrious self biography, found their way on the bookshelves of all libraries of the Medean Empire.
+"I’ll take care of this for you, Phoenix Wing," whispered Serena as she took the vial from Nix’ neck. Nix purred. Separation of concerns had been the hallmark of her friendship with Serena. Her friend had guessed that the vial should be poured into the church’s fountain, the one that collected water from Charov’s Aqueduct. When one was faced with a fortress, one had to convince the defenders of abandoning their stronghold. Such was the doctrine the great Sarvitar had followed during his conquests of the modern day Clovian Domain. The Commentaries, his illustrious self biography, found their way on the bookshelves of all libraries of the Medean Empire.
 
 Nix raised her paw. Serena tapped it with her dominant hand before leaving the trio, Spartak and Nix battled the other stray animals for the leftover chicken breast the Men of the Crucible fed them.
 

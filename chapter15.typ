@@ -4,7 +4,7 @@ Serena handed him the treat. The boy and two other accomplices had snuck into th
 
 Today was supposed to be Nix’ birthday, yet Serena’s friend had been preoccupied by trivial matters, leaving Serena alone to throw rocks at the North Sea on this moonless evening. When Nix joined her, they would indulge in this contest to determine who would cook dinner for the night. Yesterday, Nix had decided to not conform to the rules, transforming her hand into this slingshot that could launch pebbles up to one imperial mile away.
 
-"Didn’t you agree not to use magic for this, pumpkin face?"
+"Didn’t you agree not to use magic for this, Phoenix Wing?"
 
 "It is not magic, it is a special alteration of my arm."
 
@@ -54,7 +54,7 @@ The night before, Nix had sought her medallion which had mysteriously disappeare
 
 Serena had put the coruscating lance she had found for Nix’ birthday on the bed.
 
-"Happy birthday, pumpkin face," she whispered quietly to the empty bed.
+"Happy birthday, Phoenix Wing," she whispered quietly to the empty bed.
 
 Nix’ encyclopedias and archives could never do the weapon justice for it was Regnant the Dragonslayer’s weapon, the same he had used to slay the Last Dragon. Serena would tell Nix that it was an eerily accurate replica, her friend being none the wiser. Acquiring it had required Serena to fly through a phantasmagoria of nostalgia and sorrow for Serena’s white wings had carried her to the lands of crags and sequoias. Now known as part of the Unknown world for the present civilizations, this nature preserve used to teem with fallen kingdoms. During her second childhood with Nix, they had spoken about the tales never told in the past. Tales they were not to Serena. Her blood and tears had forged the words the scribes had scrambled to write on parchments as they had followed her trail of glory. The Nameless Slave had been there, chronicling each deed and so-called miracle before Serena had made the mistake of emancipating her.
 

@@ -10,7 +10,7 @@ It had been easy to say from the throne, this seat Claradore had gotten accustom
 
 "The Medean Empire would never elevate a half Molochian such as Ordogan on the throne no matter how many titles they heap on him."
 
-"There is no other choice, Phoenix Egg."
+"There is no other choice, Phoenix Wing."
 
 "The Prince can be raised under the spider’s web."
 
@@ -62,7 +62,7 @@ Nix blushed. Noein, the province of paradisiac beaches and The Great Library of 
 
 "As confident as my detection of fevers, my love. Nix, dispose of it. There must have been an error for all of those who had consorted with the rebellious Aishula have had their head and their descendants’ mounted on a pike by Emperor of Kings nineteen summers ago."
 
-"Why the long face, Phoenix Egg?" hovered Serena around Nix. She juggled a hefty pouch of gold in her hands. Another nobleman had fallen victim to those scheming hands. Seduction and thievery were after a potent combination.
+"Why the long face, Phoenix Wing?" hovered Serena around Nix. She juggled a hefty pouch of gold in her hands. Another nobleman had fallen victim to those scheming hands. Seduction and thievery were after a potent combination.
 
 "The medallion," said Nix showing the still locked object.
 
@@ -90,7 +90,7 @@ To compensate for this ruinous day, Nix had bought a second eight of those dumpl
 
 Serena linked hands with Nix. Her fingers indulged in a myriad of acrobatics around Nix’ own. They explored tendons, phalanges and nerves, each touch playing notes of tenderness on the lute that was Nix’ body. Serena’s thumbs hit octaves of serenity that mellowed any conflicted soul. Through their playful tease, Nix was immersed in the strength of two human beings. The warmth of another could make one forget their vulnerabilities. They had sworn they would face any of the Goddess’ trials in unity.
 
-"What do you say, Phoenix Egg? You can’t live your entire life under the spider’s thrall."
+"What do you say, Phoenix Wing? You can’t live your entire life under the spider’s thrall."
 
 It had never occurred to her that Serena’s lips had never been so close to hers. Nix breathed heavily. It was likely an illusion. Serena smiled, moving her face away from hers. 
 
