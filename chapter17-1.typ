@@ -63,35 +63,74 @@ enchanting men and women alike. Nix caught their eye, almost causing them to
 stop their music. She took the opportunity to rotate her hips and shoulders, 
 flaunting the purple dress.
 
+"Are you to be wed to the Emperor of Kings, my Lady,"
+asked Majorian with their female voice.
+
+"And be relayed to the shadows of his harem? No, thank you," said Nix.
+
+"Careful with your tongue, the princess Zahna lurks around. You should see her 
+turquoise robe. The silk must come from the Unknown World."
+
+Butterflies flew in Nix's stomach. She had to resist the temptation of kissing 
+Majorian on the lips. She settled instead for their cheeks. The Elysians abhorred behaviors they deemed to be unnatural. Nix did not fancy getting stoned by a mob while wearing the finest 
+purple dress she could get her hands on.
+
+Nix felt a woman's arm on her shoulder. "Look at you two, swans gracing the lake 
+with majesty. We need liquor and men to dance with," said Serena in the Imperial Tongue. Her breath stank of wine and pomegranate.
+
+"You are in no position to dance," laughed Nix.
+
+"No, no, no, I sure am not, 
+but I have heard someone here must learn who Empress Aishula was."
+
+"She has been dead these twenty summers. You might as well search for a single grain of sand in the Elysian deserts."
+
+"I would not be so sure, Phoenix Wing."
+
+"What are you insinuating?"
+
+Serena did not answer. Instead, she grabbed Majorian's hand and made a dash 
+for the liquor stand. Nix sighed for she would be carrying Serena's inebriated 
+body back to the tavern. Maybe tonight was reason to celebrate. Her ploy with the 
+Men of the Crucible bore fruit. Around fifty of them fell ill in the aftermath of 
+her pouring her concoction into their drinking water. Nix even assisted Zhapur 
+in nursing a handful of them to good health. The less unfortunate however, 
+were left devoid of their eyesight...permanently.
+
+She did not have to wait for the Man in White's next move. The foolish zealots 
+simply assumed their fountain was cursed. The Emperor granted them a lodge in 
+the Palace Complex, not knowing his new guests' lives now hung by a thread. 
+Nix would now decide when and how the Man in White's life would be forfeited. 
+
 "Aishula?" asked the woman cased in a sapphire tunic with prancing gryphons
 and surging peacocks. Her tongue was eloquent, even aristocratic. Five Elysian men
 in plain clothes flanked her. It must be the princess Zahna Majorian spoke about.
 
 "You must have mistaken me for someone else," said Nix in the Elysian Tongue.
 
-"My apologies. You are but her doppelganger," said Zahna.
+"My apologies. You are but her reflection given flesh," said Zahna.
 
 "I have never been mistaken for royalty, my Lady,"
 
-"Your accent...You were raised by Medeans, were you not?"
+"Your accent...You were raised among the Medeans, were you not? You have never 
+seen Persiphon's splendour. What a tragedy."
 
-"Lord Claradore is an excellent teacher."
+"Lord Claradore proved an excellent teacher."
 
 "Funny, he speaks with an accent no one in the Known World can produce."
 
-"My Lady, her eyes! Her eyes! They're his!" whispered one of the Elysian men.
+"My lady, her eyes! Her eyes! Don't you see? They are his!" hissed one of the Elysian men.
 
 "A mere coincidence it is, Nader."
 
-"But what if?"
+"But what if is not?"
 
-"The Empress Aishula has already paid for her sins against my father. We have both seen her head. Unless you believe this girl is a revenant..."
+"The Empress Aishula has already paid for her sins against my father. We have both seen her severed head multiple times. Unless you believe this girl is a revenant..."
 
-"The Outer Provinces speak of encountering basilisks. A revenant is not far fetched."
+"The Outer Provinces tell of basilisks in their midst. A revenant is no greater madness."
 
 "Forgive my men. The scars from twenty years ago still linger in their minds."
 
 "Forgive my ignorance. I was born and raised in the Medean Empire. What sins did she commit, my Lady?" asked Nix.
 
-"That dreadful girl...She has had the misfortune of provoking the jealousy of my late mother. My father, the Emperor of Kings, had both Aishula and the babe killed but not before the wicked Aishula 
-had the time to curse him: my child will raise your head upon a centennial blaze."
+"That wretched girl... I remember the wedding all too well. Her own parents had gifted her to my father for gold. At court, she had the misfortune of stirring my late mother's jealousy. My father, the Emperor of Kings, had both Aishula and her babe put to death—but not before the girl cursed him: My child shall mount your head upon a pyre that burns for a hundred years."
