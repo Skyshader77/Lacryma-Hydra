@@ -62,3 +62,36 @@ Their fingers played a harp. Vocal octaves glided down the strings,
 enchanting men and women alike. Nix caught their eye, almost causing them to 
 stop their music. She took the opportunity to rotate her hips and shoulders, 
 flaunting the purple dress.
+
+"Aishula?" asked the woman cased in a sapphire tunic with prancing gryphons
+and surging peacocks. Her tongue was eloquent, even aristocratic. Five Elysian men
+in plain clothes flanked her. It must be the princess Zahna Majorian spoke about.
+
+"You must have mistaken me for someone else," said Nix in the Elysian Tongue.
+
+"My apologies. You are but her doppelganger," said Zahna.
+
+"I have never been mistaken for royalty, my Lady,"
+
+"Your accent...You were raised by Medeans, were you not?"
+
+"Lord Claradore is an excellent teacher."
+
+"Funny, he speaks with an accent no one in the Known World can produce."
+
+"My Lady, her eyes! Her eyes! They're his!" whispered one of the Elysian men.
+
+"A mere coincidence it is, Nader."
+
+"But what if?"
+
+"The Empress Aishula has already paid for her sins against my father. We have both seen her head. Unless you believe this girl is a revenant..."
+
+"The Outer Provinces speak of encountering basilisks. A revenant is not far fetched."
+
+"Forgive my men. The scars from twenty years ago still linger in their minds."
+
+"Forgive my ignorance. I was born and raised in the Medean Empire. What sins did she commit, my Lady?" asked Nix.
+
+"That dreadful girl...She has had the misfortune of provoking the jealousy of my late mother. My father, the Emperor of Kings, had both Aishula and the babe killed but not before the wicked Aishula 
+had the time to curse him: my child will raise your head upon a centennial blaze."
