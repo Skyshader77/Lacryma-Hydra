@@ -51,7 +51,8 @@ What about you, Phoenix Wing? Do you have a prince in mind? What about this Majo
 
 A mellowing voice coursed through the Palace's hallways. Nix let herself be rocked by the melody which sang poetry in the Classical Tongue. It was Majorian.
 Their voice guided her through 
-the guests. She found herself in a vestibule. Guests surrounded the sunshine 
+the guests. She found herself in the Vestibule. Guests and reliefs 
+portraying Kornicus' campaigns against the Rauthengardians surrounded the sunshine 
 of her days. Interestingly enough, 
 Majorian chose to use a woman's voice for this occasion. 
 
@@ -76,7 +77,8 @@ Majorian on the lips. She settled instead for their cheeks. The Elysians abhorre
 purple dress she could get her hands on.
 
 Nix felt a woman's arm on her shoulder. "Look at you two, swans gracing the lake 
-with majesty. We need liquor and men to dance with," said Serena in the Imperial Tongue. Her breath stank of wine and pomegranate.
+with majesty. How are you not the stars of this galaxy? 
+Come, we need liquor and men to dance with," said Serena in the Imperial Tongue. Her breath stank of wine and pomegranate.
 
 "You are in no position to dance," laughed Nix.
 
@@ -102,35 +104,72 @@ simply assumed their fountain was cursed. The Emperor granted them a lodge in
 the Palace Complex, not knowing his new guests' lives now hung by a thread. 
 Nix would now decide when and how the Man in White's life would be forfeited. 
 
-"Aishula?" asked the woman cased in a sapphire tunic with prancing gryphons
-and surging peacocks. Her tongue was eloquent, even aristocratic. Five Elysian men
-in plain clothes flanked her. It must be the princess Zahna Majorian spoke about.
+She wandered the halls of the Villa contemplating frescoes of Kornicus hunting wild boars with his sons who ignited bountiful of civil wars after his death.
+She probed Elysians for the name Aishula only to receive incoherent sentences 
+and drunken japes as answers. It had seemed the memory of the disgraced Empress
+has either disappeared or did not want to resurface in the modern era. When she tired of querying Elysians, Nix returned to the Vestibule to lounge on a chair.
+A marble statue depicting Kornicus in a state of intense meditation stood in the corner. Perhaps she was asking the Goddess why she has given him two stupid sons?
+
+"Aishula?" asked a woman's voice.
+
+Nix turned her head. A lady cased in a sapphire tunic with prancing gryphons
+and surging peacocks had appeared. A purple shawl gilded with dark blue diamonds enveloped her neck. Her tongue was eloquent, even aristocratic. Five Elysian men
+in plain clothes flanked her. Nix deduced that they were Vodrath Anshar, the personal retinue of the Emperor of Kings and his elite bodyguards.
+Nix had no doubt that this was the princess Zahna that Majorian spoke about.
 
 "You must have mistaken me for someone else," said Nix in the Elysian Tongue.
+The Elysian men muffled a laugh upon hearing her accent.
 
 "My apologies. You are but her reflection given flesh," said Zahna.
 
 "I have never been mistaken for royalty, my Lady,"
 
-"Your accent...You were raised among the Medeans, were you not? You have never 
+"Your accent...You were raised among the Medeans, were you not? You must have never 
 seen Persiphon's splendour. What a tragedy."
 
 "Lord Claradore proved an excellent teacher."
 
 "Funny, he speaks with an accent no one in the Known World can produce."
 
-"My lady, her eyes! Her eyes! Don't you see? They are his!" hissed one of the Elysian men.
+"My lady, her eyes! Her eyes! Don't you see? They are his!" hissed one of the Elysian Vodrath Anshar.
 
-"A mere coincidence it is, Nader."
+"A mere coincidence it is, Nader." Nix tried to see through the mask that Zahna wore. The Elysian princess' lips were crisped, her green eyes spat bewilderment, the hallmarks of a lie. Nix was thankful that the Elysians would never break the 
+rules of hospitality.
 
-"But what if is not?"
+"But what if is not?" said Nader.
 
-"The Empress Aishula has already paid for her sins against my father. We have both seen her severed head multiple times. Unless you believe this girl is a revenant..."
+A silence as heavy as a lance fell between them. The Elysian princess scrutinized Nix's eyes. If Zahna gave any order to her men, Nix would respond with her concealed dagger.
 
-"The Outer Provinces tell of basilisks in their midst. A revenant is no greater madness."
+"The Empress Aishula has already paid for her sins against my father. We have both seen her severed head multiple times. Unless you believe this girl is a revenant..." said Zahna.
 
-"Forgive my men. The scars from twenty years ago still linger in their minds."
+Nix touched her hands and pinched her skin.
+"I have never heard of revenants who can pinch their skin, my Lady," said Nix.
+Zahna snorted.
+
+"The Outer Provinces tell of basilisks in their midst. A revenant is no greater madness," said the Vodrath Anshar.
+
+"So we speak about basilisks and revenants now? Those do not exist anymore, 
+my Lady."
+
+"You are wrong...Forgive my manners, your name still eludes me," said Zahna.
+
+"People call me Nix."
+
+"Fascinating. Does the name Roxanna mean anything to you?"
+
+"Roxanna?"
+
+"It is the name of the late Aishula's daughter."
+
+"A traitorous girl who escaped death," said a Vodrath Anshar. Nix gazed at their hidden blades, all 
+bulkier than hers.
+
+"Forgive my men's bluntness. The scars from twenty years ago still linger in their minds."
 
 "Forgive my ignorance. I was born and raised in the Medean Empire. What sins did she commit, my Lady?" asked Nix.
 
 "That wretched girl... I remember the wedding all too well. Her own parents had gifted her to my father for gold. At court, she had the misfortune of stirring my late mother's jealousy. My father, the Emperor of Kings, had both Aishula and her babe put to death—but not before the girl cursed him: My child shall mount your head upon a pyre that burns for a hundred years."
+
+"Does that curse still haunt the Emperor of Kings? The babe and the mother are dead."
+
+"The mother, yes but the child...The child was spirited away before she could be sent to the Gates of the Underworld."
