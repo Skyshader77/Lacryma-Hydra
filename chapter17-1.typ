@@ -172,4 +172,95 @@ bulkier than hers.
 
 "Does that curse still haunt the Emperor of Kings? The babe and the mother are dead."
 
-"The mother, yes but the child...The child was spirited away before she could be sent to the Gates of the Underworld."
+"The mother, yes but the child...The child was spirited away before she could be sent to the Gates of the Underworld. Some say the child did not live to see 
+her majority. Others do not share that sentiment...Some even think that she stands right before me."
+
+Nix clenched her hidden dagger. The Vodrath Anshar leered at her. Those lunatics!
+She could not be the child of a dead woman. Claradore would have told her. Claradore would have known. Why did her physical resemblance with the Empress Aishula unnerve those Elysians? 
+
+Never had she turned away as quickly from a conversation as she did. 
+Her sprinting legs brought her to Majorian and Serena who were enjoying 
+Elysian juice in the peristyle.
+
+"We leave now," said Nix.
+
+Both of her allies were dumbfounded. 
+
+"Is something the matter?" asked Majorian. Nix's eyes gave them the answer they needed. They scurried down the colonnaded hallways past the marble statues of Kornicus and his heirs. They walked slowly not disturbing the chatter of the Elysians. Nix was aware that from the moment the rules of hospitality would no longer apply, the Vodrath Anshar will be stalking her like a gryphon hunts 
+larks in the sky.
+
+They found themselves on the road. Rain drizzled on the old Sarvitarian concrete ridden with potholes. 
+
+"Have you angered an Elysian princess by chance, Phoenix Wing?" asked Serena.
+
+"Worse. She believes me to be Aishula's daughter, the subject of an absurd prophecy."
+
+"The Elysians wage war over prophecies. I have sung a few of their epics. 
+The quality of their poetry is unmatched,"
+said Majorian.
+
+"This is no time to be praising our would-be assassins!" said Nix.
+
+"Hoh! So she even intends to murder you, now. Your list of admirers grows larger 
+by the day."
+
+"This is no laughing matter. We must inform Claradore. The Princess of Kings 
+wants me dead."
+
+"Phoenix Wing, as much as I find your story amusing, nobility has little time to decide the fate of one commoner.
+Surely she was exchanging pleasantries."
+
+"The Vodrath Anshar disagree with you, Serena. They will be upon us."
+
+"Will you use magic?"
+
+Nix grinned. "Why else would we be alone at this very moment?"
+
+An earthquake of hooves echoed through the pouring rain.
+Nix looked behind her. Hooded riders rode to meet them, their lances and swords 
+glistening under the growling thunder. Nix was no desperate fool. There was no outrunning horses. Moreover, it was she who 
+the Elysians wanted. Having Majorian in her proximity would leave her adversaries 
+the possibility of using them as a hostage. 
+
+"Run!" Nix said to her two allies. "I will be joining you two soon."
+
+Serena and Majorian ran for the tavern four imperial miles from their current location. 
+
+A strident shriek peeled through the storm. The riders' horse neighed violently.
+No animal in the Known World could produce that sound. Nix's blood froze. 
+Pairs of wings emerged from the night. The things that were headed her way 
+were a cross between a bat and a lizard. Yet their arms were distinctly human.
+One thing was certain: only Magi could have created such monstrosities.
+
+Nix did not know which event was more implausible: the fact that she could have claim Elysian throne or that Margrub Dogas had returned. The dire news in all of this was that the Red Guild did not possess the capability to produce Margrub Dogas. Claradore had told her they needed another three years to be able to 
+create those weapons from human bodies. 
+
+A skin-pimpling chill ran down Nix's spine. Then who in the Known World could 
+create Margrub Dogas if not the Red Guild. She was curious. Were the creatures 
+as ferocious and craven as the legends portrayed them? 
+
+Her Elysians lacked her curiosity. Her pursuers wasted no minute and turned their tail. The Magrub Dogas
+nosedived towards the men, impaling horse and man with their talons and claws. 
+Elysians flailed their lances and swords to no avail.
+Guts were spilled, arms and heads were ripped apart with bestial savagery. 
+
+Nix melted her right arm into a blood blade. If the monsters were not the Red Guild's then surely she would have to face them. She glanced at Livia's tattered 
+dress. _All good things must come to and end,_ thought Nix.
+
+The Margrub Dogas circled above her. They howled. There were four beasts.
+
+The first monster bore down its claws. She parried it. Her left arm seized its throat, digging into its scaled flesh. The texture was akin to a crocodile's skin.
+The thing roared in agony as her fingers found its arteries. Shaping them into scissors, she snipped. Blood gushed from the creature as it collapsed on the 
+paved road, disintegrating into a puddle of black ashes.
+
+The second and third creatures seemed to have been blessed with a brain for 
+they attacked simultaneously. Wings sprouted from Nix's back, further tearing her 
+once beautiful attire. Rain cascaded down her arms and legs as she jumped to 
+avoid their coordinated assault. She took a deep breath. Her entire torso liquified, followed by her head, shedding Livia's dress. Her liquid form 
+rushed towards the second monster, seeping through its ears, jaws and nose. 
+She soon felt its once human arms, its heavy wings and its teeth as sharp as a shark. Her third opponent visibly did not care about the 
+well-being of its ally as it lunged at her with its serrated teeth. With her new 
+claws, she slashed, cleaving her enemy's rib cage. One by one, her borrowed assets
+picked rib after rib out of the opposing Margrub Doga until no life was left in 
+its beastly eyes. Her blood then accumulated within the second Margrub Doga's head. She felt herself burst out of its skull, reconstituting herself under the 
+storm.
