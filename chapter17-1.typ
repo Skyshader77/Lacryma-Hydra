@@ -226,14 +226,17 @@ the possibility of using them as a hostage.
 
 Serena and Majorian ran for the tavern four imperial miles from their current location. 
 
-A strident shriek peeled through the storm. The riders' horse neighed violently.
+A strident shriek peeled through the storm. The horses neighed violently,
+almost expelling their riders from the saddle as they stopped.
 No animal in the Known World could produce that sound. Nix's blood froze. 
 Pairs of wings emerged from the night. The things that were headed her way 
-were a cross between a bat and a lizard. Yet their arms were distinctly human.
-One thing was certain: only Magi could have created such monstrosities.
+were a cross between a bat and a lizard. No, every one of them was a perfidious 
+mockery of the animal kingdom as if a wizard has chosen to randomize every animal parts into a single vessel. 
+Yet their arms were distinctly human. Scythes, lances and pitchforks gleaned 
+alongside their teeth.
 
-Nix did not know which event was more implausible: the fact that she could have claim Elysian throne or that Margrub Dogas had returned. The dire news in all of this was that the Red Guild did not possess the capability to produce Margrub Dogas. Claradore had told her they needed another three years to be able to 
-create those weapons from human bodies. 
+Nix did not know which event was more implausible: the fact that she could have a claim to the Elysian throne or that Margrub Dogas, the chimeras of the past, had returned. The dire news in all of this was that the Red Guild did not possess the capability to produce Margrub Dogas. Claradore had told her they needed another three years to be able to 
+create those weapons from human bodies.
 
 A skin-pimpling chill ran down Nix's spine. Then who in the Known World could 
 create Margrub Dogas if not the Red Guild. She was curious. Were the creatures 
@@ -247,20 +250,78 @@ Guts were spilled, arms and heads were ripped apart with bestial savagery.
 Nix melted her right arm into a blood blade. If the monsters were not the Red Guild's then surely she would have to face them. She glanced at Livia's tattered 
 dress. _All good things must come to and end,_ thought Nix.
 
-The Margrub Dogas circled above her. They howled. There were four beasts.
+The Margrub Dogas did not consume their victims, confirming that it was 
+indeed humans who gave birth to them. The chimeras circled above her. They howled. There were four beasts.
 
-The first monster bore down its claws. She parried it. Her left arm seized its throat, digging into its scaled flesh. The texture was akin to a crocodile's skin.
-The thing roared in agony as her fingers found its arteries. Shaping them into scissors, she snipped. Blood gushed from the creature as it collapsed on the 
+The first monster fell from the sky, bearing down its claws. 
+She parried it. Nix recognized the nauseating scent of the Underworld, this mix of sulfur 
+and urine. Her left arm seized its throat, her nails and fingers 
+digging into its scaled flesh. The texture was akin to a crocodile's skin.
+The thing roared in agony as her fingers found its arteries. Shaping them into scissors, she snipped and snipped. Blood gushed from the creature as it collapsed on the 
 paved road, disintegrating into a puddle of black ashes.
 
+_Those things were once human,_ thought Nix.
+
 The second and third creatures seemed to have been blessed with a brain for 
-they attacked simultaneously. Wings sprouted from Nix's back, further tearing her 
+they attacked simultaneously. Nix did not care. She closed her eyes. Wings sprouted from her back, further tearing her 
 once beautiful attire. Rain cascaded down her arms and legs as she jumped to 
 avoid their coordinated assault. She took a deep breath. Her entire torso liquified, followed by her head, shedding Livia's dress. Her liquid form 
 rushed towards the second monster, seeping through its ears, jaws and nose. 
-She soon felt its once human arms, its heavy wings and its teeth as sharp as a shark. Her third opponent visibly did not care about the 
-well-being of its ally as it lunged at her with its serrated teeth. With her new 
-claws, she slashed, cleaving her enemy's rib cage. One by one, her borrowed assets
-picked rib after rib out of the opposing Margrub Doga until no life was left in 
+She soon felt its once human arms, its heavy wings and its teeth as sharp as a shark. Its strength and agility were hers to command. Yet, there was unease 
+in this body. It was the same sensation that she had encountered when entering Livia's flesh. _No, it cannot be,_ thought Nix.
+
+
+She did not have the ponder to ponder on the Margrub Dogas' origins. Her third opponent visibly did not care about the 
+well-being of its ally as it lunged at her with its serrated teeth. 
+With her new 
+claws, she slashed, cleaving her enemy's rib cage. The chimera roared in pain.
+One by one, her borrowed assets
+picked rib after rib out of the opposing Margrub Doga 
+until no life was left in 
 its beastly eyes. Her blood then accumulated within the second Margrub Doga's head. She felt herself burst out of its skull, reconstituting herself under the 
 storm.
+
+The last chimera leered at her with anticipation. Nix motioned for it to try its 
+chance against her with her index finger.
+
+Instead, the fourth creature chose the wisest and the most dangerous option. It flew overhead making a beeline for Serena and Majorian. Nix uttered a litany of 
+profanities. More inhuman howls erupted through the night. They organized themselves into an insidious orchestra as if heralding her impending doom. 
+Dozens more monsters entertained the concert in the sky above. _What in the Underworld is happening?_ 
+thought Nix. Was the world about to end? 
+There has never been so many fell beasts since the Age of Magic. She dedcued that someone had a Forge to create them. And only a Magi could 
+operate the contraption.
+
+_So there is another Magi asides me and Claradore,_ thought Nix.
+
+Nix bolted under the torrential rain. Why were these creatures targeting her? 
+The likely answer was that they knew she was a Magi. Yet only Serena, Majorian and Claradore were aware of that fact. A traitor? She would have to ascertain 
+that after she has dealt with the chimeras. But were it to be true, her life may already been forfeited. 
+
+Her feet ached as she stepped on mud and rock. The cold sharpened around her, 
+grating her skin. Endless darkness paraded in front of her, eternalizing the 
+distance between her and her allies. Even if she could reach them, how will she fend off the horde of fiends that this new enemy has conjured? Only now did she realize her first victims used her as their plaything. She was an idiot. Nix had let them gauge her, a terrible mistake. 
+
+A shrill scream rang through the frosty air. Serena's voice. Nix hurried, 
+now feeling her lungs sear in pain. She no longer felt her legs. _Please be safe,
+_ thought Nix. It was a naive thought she admitted. What could Serena and Majorian
+do against that army? Nix's eyes swelled with tears. She had failed Baba and 
+let herself be weak. If she got beaten again, Claradore would never look at her in the eye again.
+
+Claradore's words resonated in her head. _Baba had let herself be weak and the weak...The weak get beaten_
+
+Nix saw Serena's tunic hang from a torn fence post. Finally, she was close.
+Her skin shivered. The fabric was soaked in blood. The trail led to Serena 
+who was reclining against an uprooted tree. A creature's severed talon was 
+embedded in her right leg. 
+
+"Phoenix...Wing...I'm sorry..." said Serena. Nix did not like that statement.
+
+"Where...Where is Majorian?" said Nix.
+
+"There...are...too...many...Alexander...Need...to...kill..."
+
+"I do not understand. Where is Majorian?"
+
+Serena pointed to the black sky. A drop of blood landed on Nix's forehead. 
+Then another. Nix screeched. She forced her eyes to look up. A ring of fiends flew above forming a procession straight from the Gates of the Underworld. 
+They circled around four of their own. The beasts chanted monstrous cants by using a parody of human speech. Majorian's legless body was carried by the four Magrub Dogas.
