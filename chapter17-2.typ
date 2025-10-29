@@ -115,31 +115,47 @@ Had she been younger, this warmth would have meant death for a Magi such as him.
 
 Serena extracted the spear from his body. Claradore groaned in pain. Her hands 
 hurried to scald the gaping wound. She sensed venom within his blood. Her eyes 
-betrayed her realization. He nodded. 
+betrayed her realization. He nodded. Venom and flames spelled disaster for the art of blood magic. This was how her armies had obliterated the Magi.
 Her fingers drew lemniscates. Her lips sang incantations. 
 There was once a time when magic was used to heal and not usher indiscriminate destruction. The Magis had all forgotten the cushions of peace by the time of 
 Serena's birth. It was this avidity for violence that caused her to end the 
 magical kingdoms of old and their slave armies.
 
+Greenish fluids escaped Claradore's body. Color faded from his visage. He struggled to stand above the sea. His eyes turned crimson. 
+She saw his eyelids fluttering. He vomited on her brown tunic. 
 
-Greenish fluids escaped Claradore's body. Color faded from his visage. 
-She saw his eye lids fluttering. He vomited on her brown tunic. 
-
-"Saved by the Goddess...How embarassing..." Claradore rasped.
+"Saved by the Goddess...How embarrassing..." Claradore rasped, limping above the waves.
 
 "A simple thank you would have sufficed."
 
-Claradore's eyes closed. His head arched backwards. His feet sank underneath the sea. Serena cursed in the Forgotten Tongue. She grabbed his hands but could not establish a firm grip. The master of the Red Guild fell into the ocean. As much as Serena desired his disappearance, she reckoned her own need for allies. 
+His health proved to be unconvincing. Claradore's eyes closed. His head arched backwards. His feet sank underneath the sea. Serena cursed in the Forgotten Tongue. She grabbed his hands but could not establish a firm grip. The master of the Red Guild fell into the ocean. As much as Serena desired his disappearance, she reckoned her own need for allies. 
 
 Diving into the frigid water, she transformed her lower body into mermaid's tail. 
 She felt her new form plow through currents, each thrust displacing far more 
 water than human feet.
 It was true that magic allowed one to align their soul with nature. Serena revolved in the sea as if she had always been a seaborne creature.
 
-She could swim as fast as a swordfish. Her hands found Claradore's. All fragments of her vigor pulled upwards, her tail propelling her away from the depths. 
+How long has it been since the last time she had navigated the ocean's floor? 
+Decades? Centuries? Eons? She had forgotten how many bubbles she made as she threaded through the sea. She had forgotten how curious the dolphins, swordfishes and sharks were as they zipped past her nautical form. Beneath her, Claradore sank even lower as she twirled and span, touching coral and fish alike.
+
+_Is is truly the optimal choice to save this man?_ thought Serena. 
+
+Without this child, the canary that was Nix would be free from the spider's cage.
+The Red Guild had reserved a cruel mission for the one she wanted to kiss the most, the one who chose to copulate with that person called Majorian instead. 
+Without Claradore, Nix could be swayed to leave Thanatopolis, to relinquish 
+her foolish fantasy of wearing a princess' garments. Serena had once prided herself in belonging to a higher plane of existence than the common of mortals.
+Who was she to save a drowning child?
+
+She lingered in the waters, toying with sea urchins and baiting moray eels
+out of their dens. The abyss was the sole location that had not known the terror of human violence. When she had been a child, Serena often asked the Forgotten Gods why she had not been reincarnated as a simple fish, beings whose only contact with humanity was the wreckage of triremes and dromons. 
+
+It was the thought of Nix crying at Claradore's funeral that perturbed her the most. There were to be more weeping in the coming hours and days as whoever had unleashed those Margrub Dogas would inevitably create more of those creatures. 
+Grief must be delayed in consequence.
+
+Serena swam as fast as a swordfish. Her hands found Claradore's. All fragments of her vigor pulled upwards, her tail propelling her away from the depths. 
 As she ascended, she wondered to herself why she had saved a Magi twice not 
 once on this day. While she did not expect gratitude from this Magi, she hoped 
 he would understand the situation the Gatekeeper has locked them in. It was inevitable that Nix would be entangled by this problem as well. The Margrub Dogas 
 had sensed and identified the Magi with surgical accuracy.
 
-_Please be alive, Phoenix Wing,_ thought Serena as her head burst through the surface.
+_Please be alive, Phoenix Wing,_ thought Serena as her head burst through the surface. The day had come.
