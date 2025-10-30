@@ -1,10 +1,14 @@
 The princess Livia had departed for her summer residence alongside Domitian. 
-Nix relished such opportunities for she was able to sneak into the purple born's 
+Nix relished such opportunities for she was able to sneak into the purpleborn's 
 room. 
 
 The golden gilded door creaked open. Livia's perfume, made of jasmine and roses
 caught her nose. An arsenal of dresses, stolas and coats fluttered in the gargantuan
 wardrobe. Flickering candles shone on the opulent shades of purple, rose, crimson and gold. 
+
+An armada of lotions, herbs and powders was lined up on furniture whose legs were carved in the shape of dragons. Brushes stood up in pots awaiting orders.
+Medean princesses and empresses commanded the Known World's largest reserve of 
+cosmetics, a treasure they did not hesitate to flaunt in the carnival of masks that was court.
 
 Nix walked on the mosaic floor which depicted the Goddess' final departure from the 
 land of the living. Her hands made their way into Livia's army of robes. 
@@ -12,28 +16,24 @@ Her guilty pleasure had been to wear clothes that she could never purchase.
 Her fingers touched the softest silk, the brightest rose, the warmest feathers.
 Nix could feel her own face turn green. It was never fair.
 
-She found the object of her desires: this long flowing gown with a mantle of gold 
-binding the neckline. A crimson cape embroidered with the Medean phoenix extended 
-from the back of the outfit. Livia had only worn the attire once during her 
-engagement to Domitian. Why even bother commissioning the dress if you only wore it 
-a single time?
+She found the object of her desires: a flowing gown of crimson and black that 
+made one look like they were carved out of obsidian and blood. The finest silk 
+from the Unknown World constituted the delicate fabric. Livia's scent lingered on the cloth, this crown of honey-sweet rose that blessed its wearer with an exotic 
+journey of jasmine, saffron and roses. Only one woman in the Known World could wear this scent: the Medean Empress.
 
-_The purple born and their eccentricities_ thought Nix.
-
-She removed her handmaiden clothes and put on the gown, delighting in its 
-tender fabric.
+She removed her handmaiden clothes and put on Livia's undergarments. The  red and black gown came next. She delighted in its tender fabric, knowing that the cloth 
+conveyed both nobility and peril.
 
 Before her stood a girl who dreamed to become a princess. For this one night, Nix 
 would grant that girl's wishes. 
 
 Sitting in front of Livia's mirror, Nix combed her hair in the exact same manner 
-as Livia. The princess' armada of perfume bottles tempted her. Yet the flagrance 
-that interested her was the ornate bottle shaped like a dragon. Only one woman in 
-the Known World could possess that scent, one that commanded authority. Foreign dignitaries would be in awe of smelling such a perfume that seemed to transcend 
-human senses. Nix would put two droplets on her neck.
+as Livia. The princess' legions of cosmetics tempted her. Her hands could not resist. She brushed her face. The princess' face was meant as beauty honed into weaponry, a destabilizing force that was meant to ease unmasking its beholders.
+Nix applied a crimson shadow underneath her eyes. Her lips were painted as red 
+as Vyrmogothian wine. 
 
 And at last came the princess' crown, this diadem encrusted with the now exiled empress Thessaly's jewels. Nix knew the rubies adorning the crown would suit her 
-head. Her hands deposited the ornament on herself.
+head. Her hands deposited the ornament on herself. The crown framed her brown eyes. It was all natural as if she had always been destined to rest atop her head.
 
 _Why can't it all be mine?_ thought Nix.
 
@@ -60,15 +60,16 @@ it would be through his melodious voice that could conquer any soul with
 both its range and its power. Through Claradore's patronage, Majorian became the 
 capital's foremost singer, their performance attracting dignitaries, courtiers, merchants, nobles and children alike in the Palace Complex's amphitheater.
 
-Nix jumped into their arms, letting her lips meet their.
+Nix jumped into their arms, letting her lips meet theirs.
 
-"How was your play?" said Nix.
+"How fared your play?" said Nix.
 
 "The children fancied it. Though I tire of playing the Firstborn. Melina has slain me forty-eight times this year as the Goddess." They inspected the sleeves and fabric of Nix's dress. "Quite the original attire you are wearing."
 
-"Tell me it suits me more than the princess."
+"Tell me I wear it better than that simpering princess."
 
-"You always shine brighter than the princess."
+"You always burned brighter than the princess. She is but a mere candle to your 
+brazier."
 
 Nix blushed, planting another kiss on his lips.
 To Majorian, Nix must have appeared like an Elysian 
@@ -77,13 +78,13 @@ Elysian populace, liberating them from the Goddess' tyranny. Any mortal would be
 
 "I have heard you and Serena have had no success with the medallion," said Majorian.
 
-"Zhapur informed me it relates to a certain Elysian empress. Aishula, they called her. There's nothing in the archives. No records. As if she never existed." said Nix.
+"Zhapur informed me it relates to a certain Elysian empress. Aishula, they called her. There is nothing in the archives. No records. As if she never existed." said Nix.
 
 "I am to perform at Kornikus' Villa in a few months. The Elysian patricians will gather there—the Emperor of Kings celebrates his ascension."
 
-"And you expect me to magically find a locksmith among them?"
+"And why should I bother with an old man's celebration?"
 
-"No. The patricians are old families. Someone will remember an empress the archives forgot."
+"The patricians are old families. Someone will remember an empress the archives forgot."
 
 "The Goddess knows why my medallion is related to her."
 
@@ -100,7 +101,11 @@ Majorian's voice shifted higher, taking on a woman's cadence. "And what if I was
 
 "Why do you entertain that thought? You can be anyone you desire."
 
-"I am curious."
+"I cannot. The Faith will burn me at the stake."
+
+"The witch burns beside the abomination at the pyre. This is why we light candles for Claradore's victory."
+
+"So we can be two princesses?"
 
 "Any throne would buckle under two princesses kissing on it."
 
@@ -128,8 +133,8 @@ answered Majorian as Domitian.
 
 Majorian puffed their cheeks, posturing their shoulders to accentuate 
 their muscles in the same manner as Domitian.
-"Livia please! I am a Magister Militum, the highest ranking military man in the 
-Empire! You must respect me!"
+"Livia, please! I am the Magister Militum, the highest ranking military man in the 
+Empire! You must show me the respect I deserve!"
 
 "You did not attain it by merit but by woos. My father chose you over Ordogan after I begged him day and night."
 
@@ -157,7 +162,7 @@ who would seize Thanatopolis.
 
 "They are fairy tales because reality is a cruel mistress," said Nix.
 
-"A mistress everyone weds."
+"A mistress everyone forcibly weds."
 
 "Clever poetry. Would it please you to recite some for me?"
 
@@ -175,12 +180,12 @@ Two sets of boots entered the tiled floor. Nix deduced they were Excurbitores by
 
 "Deserters. They left their gold in their quarters. We may seize it."
 
-The Excurbitores circled the room. "No, they were exploring the palace's underground. There is something lurking there, I tell you. We must scour 
+The Excurbitores circled the room. "No, they were exploring the Exiles' Island. There is something lurking there, I tell you. We must scour 
 the place."
 
 "Your imagination runs wild. The turncloaks have left the city."
 
-"No, no, no, it is a monster. I can hear it slithering within the walls. It speaks to us. It whispers names."
+"No, no, no, it must be a monster. I can hear it slithering within the walls. It speaks to us. It whispers names."
 
 Their boots left the room. Nix and Majorian laid for minutes under the bed, 
 hearing their tense breathing. 
@@ -204,7 +209,7 @@ peril.
 
 Majorian's nose stood inches away from hers. His clove scented 
 breath made her heart palpitate. 
-Nix touched his warm hand. Sweat ran from his forehead. They slowly tip toed towards the door, locking him. 
+Nix touched his warm hand. Sweat ran from his forehead. They slowly tip toed towards the door, locking it. 
 
 "Do you wish to continue our little play?" Nix said.
 
@@ -216,8 +221,12 @@ with their female voice.
 "Fool! Don't you see? The Goddess has granted me the ability to 
 perfect my self-adulation!"
 
+"If I am so enamored with myself, why shouldn't I bed myself?"
+
+"What a brilliant observation, other Livia! Shall we?"
+
 Nix snickered. Her lips closed the distance. Nix tasted Majorian's sweetness, rivaling the finest wine. 
-Their hands grabbed her waist. Nix snuffed the candle on Livia's desk as she sauntered into the bed.
+Their hands grabbed her waist. She felt their breath on her neck. Nix snuffed the candle on Livia's desk as they sauntered into the bed.
 
 
 
