@@ -66,6 +66,40 @@ _Stay with me! Stay with me!_ thought Nix.
 
 Alexander's command ignited the sound of gears spinning and bellcranks grinding metal. A loud hiss reverberated through the ruins. Nix cursed, turning left, turning right. She had to save Majorian.
 
+Parabolas of blinding light flashed in the corridor. Majorian's pleas thundered though the dungeon. She stumbled into more and more black ooze, her bare feet 
+landing into the viscous substance. Every step she took revolted her skin. 
+
+She arrived in a place of architectural deterioration, covered in discording marble assembled from all empires that had lived. It displayed the crude inelegance of the Faith at every turn from the bronze wear around the porticos to the lines of fungi that traced every arch. It was the nerve of the radial network that was the dungeon.
+
+Men of the Crucible lined up before a cyclopean structure resembling a metallic gate. Black steam emanated from the door. Metalwork not from the living world 
+manufactured the sprawling complex of gears, bell cranks, pistons and pumps that 
+fueled the Forge. 
+
+Majorian was placed on a tray. Men of the Crucible held it inches away from the Forge's opening. Dry air escaped Nix's lips as she tried to scream for his name. 
+Alexander and Boniface stood before the contraption, the latter's eyes glowing with a child's sense of wonder. Alexander clapped his hands. The Men of the Crucible threw the wailing Majorian into the Forge.
+
+A vertiginous silence ran. Nix fell on her knees.
+
+_You would never abandon me, wouldn't you?_ rung Majorian's voice in her ears for what appeared to be an eternity.
+
+And yet she did abandon him to that Forge. Certain doom awaited them. If she had known that the night spent in the Livia's room would be their last, she would have savored it to the last minute. She would have planted one more kiss on their lips. She would have cooked one more of their favorite carrot porridge.  
+She stood there motionless letting her betrayal of their vow assail her heart and bones. The Men of the Crucibles' chants and prayers added insult to injury. 
+
+She would kill them all. 
+
+Her Majorian and her Baba, stolen by these vile men. Right when she finally acquired the strength to not fear them anymore. It was not fair. It never was.
+One by one, she would tear their rib cages and pry out their still beating hearts and send their remains through the Forge. Yes that was a sound plan.
+
+Alas, the Forge would not let her enact it. It hissed anew, emitting orange 
+steam. Metallic screeching tore through the ceiling. The Forge's inner lights flickered between crimson, white and gold. Wide smiles were drawn on Boniface and Alexander's faces.
+
+A tall shadow emerged from the Forge. Two still human arms were permanently attached to their visage, now sheathed in antler's horns. Its torso stood on four equine legs. And these eyes, as red as rubies, seemed to be in constant mourning. 
+Phoenix wings sprouted from its back. 
+
+_Majorian?_ thought Nix.
+
+"Welcome back to the world of the living," said Alexander.
+
 The thing called Majorian sang with a voice as elegant as it was frightening. This time, there was a duality of female and male voices in its vocal cords. 
 Its intonation spoke of confusion and loss. Such was the beauty in the melody that Nix could have wept on the spot. That creature was an unholy miracle, capable of emulating all instruments in the Known World from water organs to harps.
 
@@ -73,6 +107,20 @@ Its intonation spoke of confusion and loss. Such was the beauty in the melody th
 
 "The Faith has no use for this mockery of a bard."
 
+"Then let the alchemists and inquisitors toy with him. Perhaps something can be gained from dissecting it."
+
+The thing called Majorian made an expression synonymous with terror at the mention of that word. Nix must have imagined it. Magrub Dogas did not have emotions.
+
 Alexander made a sudden turn of his head. Nix had no time to react. Their eyes met.
 
 "So the Magi comes for their friend. Come little girl, do not be afraid."
+
+Nix was old enough to know not to trust anything that came out of a Faithful's dirty mouth. She coiled her arm, melting it into a blood blade. Boniface yelled. 
+Men of the Crucible surged towards her position. 
+
+She leapt in the air, liquefying her entire body. _Chariot,_ thought Nix. Every drop of her blood gyrated, congregating into a spiked wheel. She spun and spun, 
+feeling the surrounding air gaining velocity. 
+
+There was the issue of Alexander. There was not a single scratch on his body. Not even his clothes had seen harm. What were his intentions? Were Cardinals not allies? Why had he not helped his compatriot?
+
+Yet the Giant stood still, content with simply witnessing her art. She did not like this. The more her gaze was fixated on him, the more every nerve in her body screamed for her to flee this place at once.
