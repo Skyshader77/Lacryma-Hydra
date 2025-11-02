@@ -78,7 +78,7 @@ fueled the Forge.
 Majorian was placed on a tray. Men of the Crucible held it inches away from the Forge's opening. Dry air escaped Nix's lips as she tried to scream for his name. 
 Alexander and Boniface stood before the contraption, the latter's eyes glowing with a child's sense of wonder. Alexander clapped his hands. The Men of the Crucible threw the wailing Majorian into the Forge.
 
-A vertiginous silence ran. Nix fell on her knees.
+A vertiginous silence ran. Nix fell on her knees. There was no asymptotes to the Faith's cruelty. They would deny Majorian an honorable demise.
 
 _You would never abandon me, wouldn't you?_ rung Majorian's voice in her ears for what appeared to be an eternity.
 
@@ -118,9 +118,63 @@ Alexander made a sudden turn of his head. Nix had no time to react. Their eyes m
 Nix was old enough to know not to trust anything that came out of a Faithful's dirty mouth. She coiled her arm, melting it into a blood blade. Boniface yelled. 
 Men of the Crucible surged towards her position. 
 
-She leapt in the air, liquefying her entire body. _Chariot,_ thought Nix. Every drop of her blood gyrated, congregating into a spiked wheel. She spun and spun, 
-feeling the surrounding air gaining velocity. 
+She leapt in the air, liquefying her entire body. _Chariot,_ thought Nix. Every drop of her blood gyrated, congregating into a spiked wheel. She danced in rhythm with the thing called Majorian's melody.
+She spun and spun, 
+feeling the surrounding air gaining velocity. Her spikes slashed through air. She thrusted forward. The Men of the Crucible screamed. She felled them, tearing through their flesh like a hot blade through butter. Their lives did not matter to her. Boniface who was covering behind his colleague was her objective. 
 
-There was the issue of Alexander. There was not a single scratch on his body. Not even his clothes had seen harm. What were his intentions? Were Cardinals not allies? Why had he not helped his compatriot?
+_Disgusting,_ she thought.
 
-Yet the Giant stood still, content with simply witnessing her art. She did not like this. The more her gaze was fixated on him, the more every nerve in her body screamed for her to flee this place at once.
+She advanced slowly, pulverizing any Men of the Crucible who had not soiled themselves. It smelled of blood and defecation. This was a chance to rectify the humiliation they had put her and Baba through eight years ago. 
+
+"Do something!" screamed Boniface to the Giant. To her surprise, Alexander 
+grabbed the Cardinal by the collar and sent him towards Nix's wheel of carnage.
+
+"Finish what you have started," simply said Alexander.
+
+She did not bother reflecting on the significance of that action. Her blades cut 
+through Boniface's flesh. The Man in White was no more.
+
+She discarded her liquefied form in front of the thing called Majorian. It stopped singing. Its red eyes gave her such a sorrowful gaze, it could make her believe it retained its humanity. 
+
+"Forgive me, Majorian," Nix said.
+
+"Nnnniiiiiiixxxxxxxxx," croaked the creature.
+
+It was lying, She knew it. It could not know her name anymore. She molded her left arm into a blood blade.
+
+"I promise you this will not hurt," she said, feeling tears run from her eyes.
+
+The creature's eyes contorted into pure horror. It appeared to cry out her name over and over again. She raised her blade as she moved towards it. The thing took a step backwards and then another.
+
+"Please, you need to return to the Underworld..."
+
+The thing called Majorian darted to the other side of the room. _It knows fear?_ thought Nix. It was implausible, but reality often disappointed her. She had failed to shield them, and now she would be denied the opportunity to relieve them of their suffering.
+
+"Come back...Please...I am here to help," croaked Nix. 
+
+"Liiiiiiiiiivvvvvvveeeeeeeeee," said the creature.
+
+"Stop. You cannot possibly speak my tongue."
+
+A shudder passed through her. She felt a humid breath over her neck. Her eyes slowly turned. It was Alexander. His form towered over hers. She was reminded how his palms were as large as a man's head, how his tired eyes glared at anyone with utmost condescension. There was not a single scratch on his body. Not even his clothes had seen harm. What were his intentions? Were Cardinals not allies? Why had he not helped his compatriot?
+
+She did not take any chances. She struck him with the blood blade. His fist connected with her jaw first. She ate dirt and blood.
+
+The Giant stood still, content with simply witnessing her art. She did not like this. The more her gaze was fixated on him, the more every nerve in her body screamed for her to flee this place at once.
+
+"You have played enough, little Magi," said Alexander as he cracked his knuckles.
+Only then did she see the tattoos depicting iconolatry of the Age of Magic. 
+Only then did she realize how irrational it was to come here without Claradore.
+
+Light poured from his tattoos. The earth growled beneath her. Alexander's mouth uttered cants of a bygone era in the Forgotten Tongue. Two dragonheads unfolded from thin air. The Elemental Gnosis, the very first of the Magi's magical tomes, destroyed by the Faith a millenium ago. Threads of flames titled towards her longitudinal axis revolved around the Giant. Nix swore loudly. Her legs did not want to move. The fire redoubled in intensity as it swirled around Alexander's colossal stature. The Giant looked like a god bathing in the sun.
+
+_I cannot prevail over that_ thought Nix.
+
+The dragonheads exploded forwards. She could only use her arms as a shield.
+A deafening roar rung through her poor ears. Infernal ringing burst through her head. Her vision swam. 
+
+She opened her eyes to see that she still lived. In front of her stood the thing called Majorian. It sang, now faster than it ever did. With the strength of desperation, its calcinated body had absorbed the torrent of fire. Its scared eyes looked at her. _You...you saved me? Why?_ thought Nix.
+
+"Run," it said clearly with Majorian's female voice. 
+
+Nix did not question the order. Her legs took her away from the Forge.

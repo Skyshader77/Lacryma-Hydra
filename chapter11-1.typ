@@ -54,7 +54,7 @@ Claradore shook his head. "The army. Who does it answer to?"
 
 "Ordogan. Someone has not been paying attention," answered Nix.
 
-"Elysian! You dare snicker at me!" said Domitan grabbing the hilt of his ceremonial sword. Livia put her arm in front of his chest.
+"Elysian! You dare snicker at me!" said Domitian grabbing the hilt of his ceremonial sword. Livia put her arm in front of his chest.
 
 As if summoned by Nix herself, Ordogan entered the mausoleum. The unruly children in the room shut their mouth as this Molochian child placed a composite bow on the Emperor’s body. His body rigidified itself as it made the imperial salute. Serena looked at Nix. When the former was unaware that Ordogan was married, she had this outrageous fantasy of having him as her prince.
 
