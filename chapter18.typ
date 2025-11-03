@@ -3,14 +3,24 @@ towered over the crowd of humans that she tried to hide within. His inhuman eyes
 
 The Cardinal knew. She reared her cat's head, meeting his emotionless stare. His knuckles were larger than her human face. To have unmasked her within seconds. As Claradore said earlier, that man was the embodiment of danger. 
 
-Fight? For some reason, every sense, every bone, every organ in her body told her to disregard that idea. Somehow, her primordial urges knew that that man hunted Magi for 
+With only fingers, the Giant had knocked Majorian unconscious in the underground 
+passageway. 
+
+"Run. Do not look back. He will not kill me," 
+had said Majorian with their human voice. 
+
+Fight? Every sense, every bone, every organ in her body told her to disregard that idea. Somehow, her primordial urges knew that that man hunted Magi for 
 sport. A Giant. A real Giant. A man whose footsteps made the soil tremble. She did not understand. All Giants perished alongside the Magi at the end of the Age of Magic. There were no tales of Giants living past their hundredth's summer.
 
 _How? How is he alive?_ thought Nix.
 
-She hastened her pace as she passed below Charov's Aqueduct, the young couples sharing a romantic evening paying no attention to her, nor her pursuer. Even Vigiles and Excubitores continued their usual routine, undisturbed by the monstrous specimen that walked the narrow streets. Like her, Alexander was accustomed to the art of camouflaging himself in the forest of humanity. After all, hiding in plain sight was always the preferred modus operanti for criminals and Magi alike.
+She hastened her pace as she passed below the shadow of Charov's Aqueduct. 
+The emptiness of the Exiles' Island provided little cover even for a cat. 
+She jumped on abandoned balustrades, fitting her feline form into cracks and 
+small interstices. Every option, every turn, every shortcut led to seeing that man behind her. 
 
-Was he capable of wielding magic? This was a question Nix did not desire the answer to. Some Giants were sired by the Magi in the art of magic. None ever managed to perfect their art style. This deficiency was compensated by their raw strength. Their hands could grab a man's skull and crush it as easily as tissue. Combine that with even passable aptitude in the magical arts and Nix was unsure whether even Claradore would fancy duelling this beast of a man.
+She knew her foe being capable of wielding magic, magic even more advanced than her own. Could he even rival the Goddess herself?
+ This was a question Nix did not desire the answer to. Some Giants were sired by the Magi in the art of magic. None ever managed to perfect their art style. This deficiency was compensated by their raw strength. Their hands could grab a man's skull and crush it as easily as tissue. Combine that with even passable aptitude in the magical arts and Nix was unsure whether even Claradore would fancy duelling this beast of a man who wielded The Elemental Gnosis.
 
 It was not her intention to allow Alexander to see her human form. The Palace Complex's five domes were visible in the distance.
 
@@ -36,7 +46,7 @@ The Giant who betrayed his own kind to see the Goddess' Light because he was cur
 
 "The Goddess has no time for insects such as you. I will suffice."
 
-"She has time or she has abandoned you."
+"She has time, or unless you mean she has abandoned you."
 
 "Insolent roach! The Goddess loves me!"
 
@@ -76,8 +86,17 @@ hit a wall of impenetrable skin. Nix cursed.
 
 "And stripped them from the Magi's knowledge. Centuries of human progress were wiped you!"
 
+With melee attacks ineffective, Nix turned to incantations. Her foe had not yet 
+established the full extent of her magical capabilities. Spells from the Grimoire 
+of Red could grant her the element of surprise.
 
-Nix did not wish to eternalize this stalemate. She took a deep breath. Her head, torso, legs and feet melted into a torrent of blood. Alexander screamed as she flowed around his arms and chest, feeling his heartbeat pulsating in a hectic manner. Her objective was his mouth and nose. Her liquefied form rushed to obstruct them. His hands trashed over her bloody form, unable to pry her away from his throat. 
+She spoke the Cants of Crimson. Bisecting planes of octagons dazzled in the air.
+Lines and vectors leapt through the colonnaded streets, shearing through stone, bricks and soil. Alexander stood there silent, unfazed. A fatal mistake.
+
+A blinding flash shone through the open terrain. Her chants whipped fiery cyclones that were hurled at the Giant. Her enemy responded with the crack of lightning. Tempest regurgitating bolts of blinding yellow and white collided with her pillars of fire. She conjured dragonheads of her own. They belched fire. 
+Ruins of forgotten villas crumbled. Ghostly forums were torn asunder amidst an arcana of burning ellipses.
+
+Nix did not wish to eternalize this stalemate. She waited for his counterattack, a cataract of hellish thunder. She took a deep breath. Her head, torso, legs and feet melted into a torrent of blood, riding his lightning like a salmon traversing an upwards current. Alexander screamed as she flowed around his arms and chest, feeling his heartbeat pulsating in a hectic manner. Her objective was his mouth and nose. Her liquefied form rushed to obstruct them. His hands trashed over her bloody form, unable to pry her away from his throat. 
 
 It was then that she felt his throat bulge. A searing heat was building up, lighting 
 his arteries and veins in a bronze hue. Nix disengaged, letting herself fall on the floor before reforming herself in a solid state. From Alexander's mouth, emerged fire.
@@ -88,9 +107,14 @@ Was this how the Magi of old danced with dragons? Sensing their scalding breath 
 She thrusted downwards aiming for his genitals. Alexander seemed to have deduced her intentions as he braced his arms, covering his soft spot. _Predictable,_ thought Nix.
 Her bloody spear pressed towards her enemy's visage. She struck one eyeball. Alexander roared in pain. Disengage of press on? She had the advantage and must utilize it to its fullest. The second spear fell down, striking one of his arms. Nix saw too late the scarlet glow emanating from Alexander's throat. A scorching blaze engulfed her abdomen, throat and face. Hair burned. The smell of roasted flesh and blood flooded her senses.
 
+His right hand grabbed her dominant arm, twisting it as if it was doll's. Her elbow cracked.
+She was bleeding from mouth and eyes. An inferno of flames surrounded her. 
+
 Nix yelled, rolling on the cemetary's ground. Baba's tales told the stories of men who preferred to fall on their sword rather than endure the sensation of burning flesh. Her lungs seared. It felt as if there were a million ants clawing and eating at her eyes, skin, lips, ears, arms, fingers and tendons.
 
-Behind her, Alexander approached.
+_Forgive me, Baba, Majorian, Serena and Claradore._
+
+Alexander put his sandal on her throat.
 
 "Wicked wench, you took my eye," rasped the Cardinal.
 
@@ -102,14 +126,17 @@ His massive hands grabbed her by the hair. She screamed in agony.
 
 She still had the strength to spit at him, her saliva was coated in calcined blood.
 
-"Still defiant, aren't we? We will not be once the Inquisitors arrive," said Alexander.
+"Still defiant, aren't we? We will not be once the Inquisitors arrive. You will be broken like an old toy," said Alexander.
 
-He started dragging her through mud before stopping momentarily. Her captor gazed at the full moon. He swore. A whistling sound perforated the air. A pillar of light crashed down. Alexander released her to evade the attack. A second pillar light rained down from the Heavens. For a few seconds, Nix has forgotten her burning body. She wanted to laugh. The number of known Magi in the Known World has now doubled.
+He started dragging her through mud before stopping momentarily. Her captor gazed at the full moon. He swore. A whistling sound perforated the air. A pillar of light crashed down. Alexander released her to evade the attack. A second pillar light rained down from the Heavens. It slivered the abdomen of a dark cloud. For a few seconds, Nix has forgotten her burning body, her severed arm. She wanted to laugh. The number of known Magi in the Known World has now doubled.
 
-"You now side with Magi? Have you been consumed by madness?" said Alexander.
+"You now side with Magi? Have you been consumed by madness?" said Alexander 
+to his attacker.
 
-Nix's savior answered with another pillar of right. It plummeted on Alexander' spine. 
-The Cardinal shrieked in pain. It was now his turn to feel his flesh being eaten by flames. The pillar of light displaced dust and stones alike. Flying debris buffeted Nix.
+Nix's savior answered with another pillar of light. It plummeted on Alexander' spine. 
+The Cardinal shrieked in pain. It was now his turn to feel his flesh being eaten by flames. The pillar of light displaced dust and stones alike. Flying debris buffeted Nix. The ground buckled like the deck of a sinking ship. Slabs of stone 
+were tossed into the firmament. The newcomer sang cants only told in the Book 
+of Primary Genesis, the world around Nix seemed to collapse, coming off live a lover's clothes.
 
 "You shall depart from this city forthwith, Disciple," thundered a voice from the heavens.
 
@@ -120,6 +147,10 @@ The Cardinal shrieked in pain. It was now his turn to feel his flesh being eaten
 Alexander chortled. "A thousand years of banishment, and still you have learned nothing of consequence."
 
 "You and I were never meant to rule, Alexander." 
+
+"That is what cowards say. We have been given unlimited responsibility, only for you to discard it like an irresponsible child. Have you no shame?"
+
+"Shame? It is you who used my name to brutalize this world we created."
 
 A being with white swan wings descended from the sky. An angel? A woman? 
 Her plumage could have made moonlight a second sun. It brightened the starless night, 

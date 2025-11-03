@@ -156,6 +156,34 @@ The thing called Majorian darted to the other side of the room. _It knows fear?_
 
 "Stop. You cannot possibly speak my tongue."
 
+"IIIIIII aaaaaaaaammmmmmm Maaaaajooooooooriaaaaaaaan," 
+
+"You lie. You lie."
+
+"Noooo."
+
+Deep within her heart, she knew it told the truth. Her brain tried to convince her of the improbability of that thing being capable of intelligence. Yet her heart has witnessed it speaking, it knowing fear. It has yet to strike her even once. _What other proof do I need?_thought Nix.
+
+The thing called Majorian sang an ode in her name. This time, its voice was as natural as the Majorian of old. She remembered how Majorian's serenades had melted her heart, how every movement of their lips could tame her wildest anger.
+
+"I loooove you," said the thing called Majorian.
+
+She could prevent herself from weeping uncontrollably. So they lived. 
+Their spirit remained in a body that was a perversion of nature.
+And so she did the unthinkable, throwing herself into the creature's human arms.
+
+Its body was stripped of the warmth that once characterized it. Its skin was now rugged like a shark's. It smelled of death and dried tears. 
+
+"Look at you. They have made a monster of you."
+
+"You are still my witch."
+
+"The witch and the monster. Wouldn't that be a good title for a fairy tale?"
+
+"I saw the Gates of the Underworld, Nix."
+
+"And you have returned...Are you Magi now?"
+
 A shudder passed through her. She felt a humid breath over her neck. Her eyes slowly turned. It was Alexander. His form towered over hers. She was reminded how his palms were as large as a man's head, how his tired eyes glared at anyone with utmost condescension. There was not a single scratch on his body. Not even his clothes had seen harm. What were his intentions? Were Cardinals not allies? Why had he not helped his compatriot?
 
 She did not take any chances. She struck him with the blood blade. His fist connected with her jaw first. She ate dirt and blood.
@@ -166,7 +194,7 @@ The Giant stood still, content with simply witnessing her art. She did not like 
 Only then did she see the tattoos depicting iconolatry of the Age of Magic. 
 Only then did she realize how irrational it was to come here without Claradore.
 
-Light poured from his tattoos. The earth growled beneath her. Alexander's mouth uttered cants of a bygone era in the Forgotten Tongue. Two dragonheads unfolded from thin air. The Elemental Gnosis, the very first of the Magi's magical tomes, destroyed by the Faith a millenium ago. Threads of flames titled towards her longitudinal axis revolved around the Giant. Nix swore loudly. Her legs did not want to move. The fire redoubled in intensity as it swirled around Alexander's colossal stature. The Giant looked like a god bathing in the sun.
+Light poured from his tattoos. The earth growled beneath her. Alexander's mouth uttered cants of a bygone era in the Forgotten Tongue. Two dragonheads unfolded from thin air. The Elemental Gnosis, the very first of the Magi's magical tomes, destroyed by the Faith a millennium ago. Threads of flames titled towards her longitudinal axis revolved around the Giant. Nix swore loudly. Her legs did not want to move. The fire redoubled in intensity as it swirled around Alexander's colossal stature. The Giant looked like a god bathing in the sun.
 
 _I cannot prevail over that_ thought Nix.
 
