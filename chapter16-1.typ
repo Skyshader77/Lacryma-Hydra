@@ -103,3 +103,28 @@ Magister Militum slumped downwards. Livia rushed to check his pulse.
 
 "He will live," said Claradore. He gestured to the Red Acolytes to surround the princess. "It seems the princess and her consort pose a threat to our safety, Cardinal. They are thus to depart immediately for Marropolis, never to return to these halls. For your own safety, youl will stay in the Palace Complex from the next week onwards. The handmaiden Nix here will now tend to his every need."
 
+Nix and Majorian had made the right assumption when they deduced Livia's room would be available after the spectacle in the imperial balcony. As expected, in her haste, the princess left the attire she wore mere hours ago on the bed. Nix wasted no second in borrowing it. The unique flagrance composed of jasmine, roses lingered on the exquisite silk. 
+
+Nix spun in front Livia's mirror admiring her new self. With the princess having left the capital possibly permanently, this room could be hers. Yet she knew the young Emperor would someday marry and would use it to seize his sister's domain for his wife. But at this very moment, everything in Livia's collection was Nix's to borrow.
+
+She felt the gentle touch of Majorian's hands on her hips. 
+
+"The Goddess be cursed, we were defeated by an Elysian,"said Nix as a parody of Livia's voice.
+
+"My love, my weak muscles were not a match for Claradore's," said Majorian as Domitian. Nix snorted.
+
+Majorian waved his arms in the same manner as Domitian had, even mimicking the manner in which the former Magister Militum stumbled next to Claradore.
+
+Nix cleared her throat. "Hah! My dear, No man can withstand the charm of my biceps," said Nix trying to coil her arms like Claradore would do when sculptors and painters arrived to portray him.
+
+"Mark my words, vengeance will be mine!"
+
+"And now what will happen to that poor poor man Boniface, alone in the Palace with the hyenas?" said Nix switching back to her imitation of Livia's voice.
+
+"Little Nix here will send him into early retirement," said Majorian with their normal voice.
+
+"And after she is done with the Man in White?"
+
+"She will marry this person right here."
+
+Their lips met. A perfect end to this superb evening.
