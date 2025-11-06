@@ -1,17 +1,17 @@
 The princess Livia had departed for her summer residence alongside Domitian. 
-Nix relished such opportunities for she was able to sneak into the purpleborn's 
+Nix relished such opportunities for she was able to sneak into the Purpleborn's 
 room. 
 
 The golden gilded door creaked open. Livia's perfume, made of jasmine and roses
 caught her nose. An arsenal of dresses, stolas and coats fluttered in the gargantuan
 wardrobe. Flickering candles shone on the opulent shades of purple, rose, crimson and gold. 
 
-An armada of lotions, herbs and powders was lined up on furniture whose legs were carved in the shape of dragons. Brushes stood up in pots awaiting orders.
+An armada of lotions, herbs and powders was lined up like dromons in the dockyards. They stood on furniture whose legs were carved in the shape of dragons alongside with brushes of all sizes in pots awaiting orders.
 Medean princesses and empresses commanded the Known World's largest reserve of 
 cosmetics, a treasure they did not hesitate to flaunt in the carnival of masks that was court.
 
 Nix walked on the mosaic floor which depicted the Goddess' final departure from the 
-land of the living. Her hands made their way into Livia's army of robes. 
+land of the living, her swan white wings deployed, carrying the corpse of the Firstborn in her arms. Nix's hands made their way into Livia's army of robes. 
 Her guilty pleasure had been to wear clothes that she could never purchase.
 Her fingers touched the softest silk, the brightest rose, the warmest feathers.
 Nix could feel her own face turn green. It was never fair.
@@ -21,14 +21,14 @@ made one look like they were carved out of obsidian and blood. The finest silk
 from the Unknown World constituted the delicate fabric. Livia's scent lingered on the cloth, this crown of honey-sweet rose that blessed its wearer with an exotic 
 journey of jasmine, saffron and roses. Only one woman in the Known World could wear this scent: the Medean Empress.
 
-She removed her handmaiden clothes and put on Livia's undergarments. The  red and black gown came next. She delighted in its tender fabric, knowing that the cloth 
+She removed her handmaiden clothes and put on Livia's undergarments. The red and black gown came next. She delighted in its tender fabric, knowing that the cloth 
 conveyed both nobility and peril.
 
 Before her stood a girl who dreamed to become a princess. For this one night, Nix 
 would grant that girl's wishes. 
 
 Sitting in front of Livia's mirror, Nix combed her hair in the exact same manner 
-as Livia. The princess' legions of cosmetics tempted her. Her hands could not resist. She brushed her face. The princess' face was meant as beauty honed into weaponry, a destabilizing force that was meant to ease unmasking its beholders.
+as Livia. The princess' legions of cosmetics tempted her. Her hands could not resist. She brushed her face. The princess' visage was meant to be beauty honed into weaponry, a destabilizing force that was meant to ease unmasking its beholders.
 Nix applied a crimson shadow underneath her eyes. Her lips were painted as red 
 as Vyrmogothian wine. 
 
@@ -38,7 +38,7 @@ head. Her hands deposited the ornament on herself. The crown framed her brown ey
 _Why can't it all be mine?_ thought Nix.
 
 She rotated around the room, contemplating how the attire magnified her 
-elegance. Nix smiled. Perhaps, she could borrow the gown indefinitely. The purple born did not understand the privilege the Goddess 
+elegance. Nix smiled. Perhaps, she could borrow the gown indefinitely. The Purpleborn did not understand the privilege the Goddess 
 bestowed them upon birth.
 
 A cough came behind her. Nix yelped.
@@ -56,7 +56,7 @@ For tonight, Majorian chose to be a man wearing a Scholae Palatinae's dress, a b
 
 "I hope I am not disturbing anything," said Majorian in the Classical Tongue 
 with a male voice. If Majorian would ever enter the annals of history, 
-it would be through his melodious voice that could conquer any soul with 
+it would be through their melodious voice that could conquer any soul with 
 both its range and its power. Through Claradore's patronage, Majorian became the 
 capital's foremost singer, their performance attracting dignitaries, courtiers, merchants, nobles and children alike in the Palace Complex's amphitheater.
 
@@ -82,7 +82,7 @@ Elysian populace, liberating them from the Goddess' tyranny. Any mortal would be
 
 "I am to perform at Kornikus' Villa in a few months. The Elysian patricians will gather there—the Emperor of Kings celebrates his ascension."
 
-"And why should I bother with an old man's celebration?"
+"And why should I bother with an old man's celebration? The Emperor of Kings is far away."
 
 "The patricians are old families. Someone will remember an empress the archives forgot."
 
@@ -124,7 +124,7 @@ sweat and perfume that still clung to the dress. "May I call you my Lady while y
 My Lady. Two words that sent tremors of pleasure down Nix's spine. Yes, that was 
 what she aspired to be named. If only everyone could refer to her by those two words. Nix was destined for royalty. All bones and flesh within her very being clamored for the divine right to rule.
 
-Nix cleared her throat. "You are clever one. Words don't sway me so easily." said Nix with a flawless imitation of Livia's voice.
+Nix cleared her throat. "You are clever one. Words don't sway me so easily." said Nix in the Classical Tongue with a flawless imitation of Livia's voice.
 
 "Livia, I am but a simple soldier. Do not use such vocabulary with me,"
 answered Majorian as Domitian.
@@ -140,7 +140,7 @@ Empire! You must show me the respect I deserve!"
 
 Both Nix and Majorian burst into incontrollable laughter. The absence of Livia 
 and her fiancee was a golden opportunity to practice their skills in the theater.
-Pretending to be purple born was a hobby as addictive as magic mushroom. 
+Pretending to be a Purpleborn was a hobby as addictive as magic mushroom. 
 Everything was simpler when one could throw denarii at any problem. 
 
 "The Known World will never understand us. It is sad," said Majorian.
@@ -170,7 +170,7 @@ Before he could soothe with songs, the sound of boots clattering in the corridor
 
 Two sets of boots entered the tiled floor. Nix deduced they were Excurbitores by the weight of their footsteps. 
 
-"I swore someone yelped here," said one Excurbitore with a thick Clovian accent.
+"I swore someone yelped here," said one Excurbitore in the Imperial Tongue with a thick Clovian accent.
 
 "Must have been rats," said a second Excurbitore with a Rauthengardian accent.
 
@@ -185,7 +185,7 @@ the place."
 
 "Your imagination runs wild. The turncloaks have left the city."
 
-"No, no, no, it must be a monster. I can hear it slithering within the walls. It speaks to us. It whispers names."
+"No, no, no, it must be a monster. The rumors are rampant about this place. People can hear monsters slithering within the walls."
 
 Their boots left the room. Nix and Majorian laid for minutes under the bed, 
 hearing their tense breathing. 

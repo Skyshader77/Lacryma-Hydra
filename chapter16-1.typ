@@ -14,8 +14,15 @@ purple born wanted to display to anyone they graced their presence with in the t
 
 Boniface sulked in his chair, stabbing his lamb and squeezing every last droplet of blood out of it. Dark shadows were traced under his eyes. It was an unfortunate turn of events that he had his slave drink the well's waters the day after Nix used her special concoction. Fifty Men of the Crucible lost their eyesight in a single of day. The Faith looked for culprits to point their daggers towards.
 
-"You have betrayed us," spat Boniface. Never had Nix taken so much pleasure of seeing this vile man riled up. She hid a smile. It was only the beginning of his torment.
+Baba's skull laid next to Boniface. It mocked Nix, reminding her that this 
+repulsive man still lived. _Rest assured Baba, slowly but surely his time will come,_ thought Nix.
 
+Men of the Crucible and Domitian's household guards faced each other in the opposite sides of the room. Since only Excubitores could wield steel in the Palace Complex, clubs and knives were the weapons of choice at this occasion.
+
+"We were given but little notice of this gathering," said Livia who was cutting 
+her marinated duck in equally sized portions.
+
+"You have betrayed us," spat Boniface. Never had Nix taken so much pleasure of seeing this vile man riled up. She hid a smile. It was only the beginning of his torment.
 
 "We had nothing to do with the Faith's infighting, High Cardinal."
 
@@ -70,17 +77,17 @@ anger.
 
 "My, my, this is quite the reception you are giving me, my friends," said Claradore.  Nix almost burst out laughing. "What is it I hear through these walls? Talks about coups, about bringing purgatory on this earth. The Emperor has only sat on the throne for a month!"
 
-Behind Claradore, Red Acolytes armed with knives infiltrated the premises. 
-Domitian grabbed the hilt of his ceremonial sword. Livia touched his hand, shaking her head. Boniface's face drained its colors.
+Behind Claradore, Red Acolytes armed with knives infiltrated the premises. Their numbers dwarfed the combined might of Domitian and Boniface's forces.
+Domitian grabbed the hilt of his ceremonial sword. His household guards all stared at him, awaiting orders. Livia touched his hand, shaking her head. Boniface's face drained its colors.
 
 "You have doomed all of us, priest," said Domitian.
 
-"My dear purpleborn and Cardinal, I believe we are being overdramatic here. It is not my intention to shed blood in the Palace Complex. Forgiveness after all is the greatest virtue the Goddess has taught us, is it not?" Claradore glanced at 
+"My dear Purpleborn and Cardinal, I believe we are being overdramatic here. It is not my intention to shed blood in the Palace Complex. Forgiveness after all is the greatest virtue the Goddess has taught us, is it not?" Claradore glanced at 
 Boniface who as furiously serrating his lamb.
 
 His audience remained silent. The Red Guild had neutralized both the scheming princess and the Faith without shedding a single drop of blood. Consolidation of power was the most principle that was taught to the purple born. Civil wars were birthed out of the womb of instability. When one ascended to the throne, it was thus imperative to dispose quietly of one's pretenders and rivals.  
 
-"For her role in this conspiracy, the princess and her fiancee will take an extended vacation to the city of Marropolis," said Claradore.
+"I am quite ashamed of you, Magister Militum. To think you could abuse of the Emperor's trust in you." He turned to Livia. "And you, his own sister. Isn't the blood of the covenant thicker than water? Have you no shame? For her role in this conspiracy, the princess and her fiancee will take an extended vacation to the city of Marropolis," said Claradore.
 
 _Equivalent to exile,_thought Nix.
 
@@ -93,15 +100,48 @@ a blood thirsty gaze. She winked at him.
 
 "You are correct...Comes," said Claradore. 
 
-In that instant, Domitian unraveled his sword, pointing it at Claradore. Livia and Boniface shrieked. The Red Acolytes brandished their knives. Nix's dagger spun in her palm. Serena whistled. Majorian hid behind Nix.
+In that instant, Domitian unraveled his sword, pointing it at Claradore. Livia and Boniface shrieked. The Red Acolytes brandished their knives. Nix's dagger spun in her palm. Serena had woken up and whistled. Majorian hid behind Nix.
 
 "Naked swine, I will end you today!" declared Domitian.
 
-With bullish agility, he charged towards Claradore who let go of the male and female virgins in his arms. The Crimson Spider titled to the side, letting the sword glide past his broad shoulders. Nix saw her professor grab Domitian's wrist,
+With bullish agility, Domitian charged towards Claradore who let go of the male and female virgins in his arms. The Crimson Spider titled to the side, letting the sword glide past his broad shoulders. Nix saw her professor grab Domitian's wrist,
 yanking it upwards. Claradore's hand connected with Domitian's temple. The former 
 Magister Militum slumped downwards. Livia rushed to check his pulse.
 
-"He will live," said Claradore. He gestured to the Red Acolytes to surround the princess. "It seems the princess and her consort pose a threat to our safety, Cardinal. They are thus to depart immediately for Marropolis, never to return to these halls. For your own safety, youl will stay in the Palace Complex from the next week onwards. The handmaiden Nix here will now tend to his every need."
+Domitian's household guards would not allow the man who humiliated their lord to go unmolested. Their eyes betrayed their intentions too clearly. Nix shouted an order. The Red Acolytes glided towards them, their blades flirting with the guards' throat. 
+
+"He will live," said Claradore. He gestured to the Red Acolytes to surround the princess. "It seems the princess and her consort pose a threat to our safety, Cardinal. They are thus to depart immediately for Marropolis, never to return to these halls. For your own safety, you will stay in the Palace Complex from the next week onwards. You will a personal assistant. The handmaiden Nix here will now tend to his every need."
+
+"It would be my honor to serve a pious man such as the Cardinal," said Nix.
+
+"You think you've won Magister Militum?" said Livia. Her eyes wandered around the room. " Am I the only one who sees your deceit? Are you all simpletons? You feign ignorance Claradore but the demon who possessed me moons ago was your doing. I am certain. You will lead this country to desolation."
+
+Claradore sighed 
+"Must we go through this again, my dear princess? There are no such things as demons in the Known World. As I have said to you countless times, magic has long been extinct."
+
+"For once, the Magister Militum speaks the truth, Princess," said Boniface.
+Claradore raised an eyebrow in response. Nix never expected the Cardinal to agree with Claradore on any matter.
+
+Red Acolytes led Livia and Domitian out of the imperial balcony. Nix would not miss any of them.
+
+"What about Giants, Cardinals," asked Nix. "Us handmaidens are quite impressed by sir Alexander's size."
+
+"What do you mean, Nix? Sir Alexander is as tall as me," said Majorian.
+
+Boniface smirked. "So you noticed it..." He approached her. His wrinkled face 
+with its dry lips did not seem as frightening as it did eight years ago. 
+"Do I know you, girl?"
+
+"I believe not, your Holiness. I am just a plain Elysian servant."
+
+"Wise answer. A bit too wise...Sir Alexander is a phenomenal individual. The Faith would be nothing without him. So yes, he is a giant of sorts."
+
+"May I ask why Cardinal Alexander could not join us tonight? Surely he would love celebrating after this turn of events?"
+
+"The man is undergoing a pilgrimage at the Exiles' Island. I am sure there will be plenty of opportunities to get acquainted with him."
+
+Serena's eyes brightened at that statement, her eyes crossing with Nix's. 
+It would be done. Unlimited private access to Boniface. The other Cardinal was out of the canvass as well. Boniface was but a single variable to solve in her equation. The things she could do to that man. It would have to look like a suicide. Then, she would reclaim Baba's skull and return to Miroconium to bury the remains. Yes, that was a sound plan.
 
 Nix and Majorian had made the right assumption when they deduced Livia's room would be available after the spectacle in the imperial balcony. As expected, in her haste, the princess left the attire she wore mere hours ago on the bed. Nix wasted no second in borrowing it. The unique flagrance composed of jasmine, roses lingered on the exquisite silk. 
 
