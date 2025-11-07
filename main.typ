@@ -66,11 +66,11 @@
 = Chapter 21
 #include "chapter17-2.typ"
 = Chapter 22
-#include "chapter17-3.typ"
-= Chapter 23
 #include "chapter17-5.typ"
-= Chapter 24
+= Chapter 23
 #include "chapter18.typ"
+= Chapter 24
+#include "chapter18-5.typ"
 = Chapter 25
 #include "chapter19.typ"
 = Chapter 26
