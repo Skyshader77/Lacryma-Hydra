@@ -2,6 +2,9 @@ Serena ignored the blood dripping from her stomach. Erfan would have said that s
 
 _I am sorry Phoenix Wing,_ thought Serena.
 
+Her wings flapped with the vigor of a cancerous patient. Every imperial mile 
+she traversed felt as if her entire body had done a marathon. Every breath was a wheeze.
+
 In her arms was cradled Nix who was now a calcined husk of her former self. 
 It was too soon for her to face Alexander. Serena should have ended his life 
 when she had the chance. She had seen first hand how his devotion and admiration 
@@ -11,7 +14,8 @@ It was only when he led armies in her name, razing cities and towns that survive
 Nix vomited blood on Serena's tattered tunic. Below them, the crystalline sea 
 stretched from the peninsula of Thanator to the Aeotian Islands. It was an ideal coffin. The sea was after all guilty of murdering, men, beasts, ships and empires alike. What were two more women to its staggering record? 
 
-"Se...rena?" croaked Nix.
+"Se...rena?" croaked Nix. The voice stank of suffering. It was unimaginable that 
+this would be the last time Serena heard her own name.
 
 "Who else could it be, Phoenix Wing?"
 
@@ -26,6 +30,7 @@ Serena smiled, trying to mask her aching wound. The mere act to crisping her lip
 "So it was all a lie?"
 
 Serena planted a kiss on Nix's forehead, the sour taste of pus filling her tongue.
+_I am sorry..._
 
 "It was never a lie, sweet sister. I merely protected you from the unpleasantness of truth."
 
@@ -52,6 +57,11 @@ Nix's wails of agony returned Serena to the present.
 
 "Do you remember the tavern, Phoenix Wing? We should have left the capital then."
 
+Serena still remembered the liquor, the braised duck that was served by the servants, the warmth of the boar skins covering their seats. The Magi had never 
+discovered how one could stop the cruel passage of time. Serena had thought that 
+immortality would have allowed to preserve the present. Instead, her era spanning existence has made her lose her comprehension of the concept of time. What good was being immortal if all of your friends, lovers and children would see the Gates of the Underworld before you? Yet, all children in the Known World chased 
+a deathless life. From drinking mercury to consulting charlatans, emperors and kings always tried to lose the race to the afterlife. 
+
 Nix did not answer the question. Her breath reeked of blood and scorched organs.
 A younger Serena would have put her out of her misery. Serena wanted to laugh. 
 Alexander and the Nameless Slave had spoken the truth plainly. Old age softened the hearts of all.
@@ -59,26 +69,66 @@ Alexander and the Nameless Slave had spoken the truth plainly. Old age softened 
 Serena ceased flying. A dove approached them, one that carried Nix's unlocked 
 medallion. It was her obligation to return it.
 
-"Your medallion, Phoenix Wing."
+"Your medallion, Phoenix Wing," said Serena as she wrapped the medallion around Nix's neck.
 
 Nix's eyes showed both incomprehension and hatred simultaneously. 
 The dove deposited the artifact within Serena's palm. Within the medallion laid 
 a signet, one that bore the seal of an Elysian Empress. The Elysian gryphon was carved on the ring.  But what caught Nix's eye as Serena expected was the engraving encircling the Elysian beast: to the daughter of Aishula and Nosrau, the Emperor of Kings, may the prophecy light your way.
 
-"I did not want you to know... You would have enacted the prophecy," said Serena.
+"Why?" said Nix.
+
+"I did not want you to know... You would have enacted the prophecy. Some things are better left unknown to the common of mortals," said Serena.
 
 "The Goddess believes in prophecies... Madness."
 
 "Prophecies preclude the Age of Magic. They are not to be taken lightly."
 
+"You think me capable of conquest?"
+
+Serena touched Nix's wounded hands, the latter's blood clinging to her own 
+bloody palm. "I have seen the games you play with Majorian. I have seen how your eyes brighten when you wear a crown. You can be dreadful at times, Phoenix Wing."
+
+"How is aspiring to change the world frightening to your kind?"
+
+"I have walked the path you are intending to walk. It will rob you of empathy as it did with me."
+
+"I understand. You do not want me to tamper with your canvas. Canvasses are where we should strive to chase flawlessness."
+
+Serena shook her head. 
+"Yet blemishes allow the artist to display their humanity."
+
+"Faults are never contained to a single element of the painting. You have seen how hurtful a single stain can be. What do you see in faults that contaminate the colors, the highlights, the shadows and the varnish?"
+
+"Yes, as irredeemable as these limitations are, they are a primordial part of human nature."
+
+"Yet clemency towards these inadequacies taint the legacy of the artist. What would you say to the connoisseurs who question your integrity?"
+
+"It is always easier to condemn tactics from a villa’s lounge. When one plunges in the battlefield that is a painting, one must surrender their childish delusion that all defects can be repaired. For the first casualty of ambition is one’s sanity."
+
+"Defeatism is a poor master."
+
+"Is this how you treat my canvas, the one that has granted you life for the past twenty years?"
+
+"I will enhance it. By the time I will have redone its horrible colors and faces, it would be unrecognizable."
+
+"Then, enlighten me. All children of this world are born with the ardent desire to become the heroes and heroines of a renowned painting, one which would revolutionize the art of painting itself. The wide majority end up drawing a plain canvas. Why not settle for simplicity, Phoenix Wing? We could have produced our own work of art if we traveled to Unknown World."
+
+Nix spat a mouthful of blood. "Simplicity? SIMPLICITY? There is no simplicity when one is a Magi."
+
 A dog barked beneath her. Spartak. Another mistake Nix had made was not to bring her dog to the Exiles's Island. Serena had never told Nix about its true origins. She panted as she landed on the shores of the imperial capital. The contents of her failing guts invaded her nose. Serena cursed. There was so much she wanted to discuss with Nix now that Serena became the Goddess anew. 
+
+"This is where our paths diverge, Phoenix Wing."
+
+"Your wounds..."
+
+Serena used her last reserves of strength to produce the smile she always showed before Nix. "You Magi have inflicted much worse on me."
 
 Serena put Nix on Spartak's back.
 
-"You know what to do."
+"You know what to do," said Serena to Spartak.
 
 Spartak barked, sprinting for Thanatopolis' walls. Serena smiled. A cool breeze 
 brushed her bloodied hair. This has been a beautiful 
-millennium of existence. She closed her eyes and slumped on the ground. 
-She slept tasting blood in her throat. Rocks had never felt so soft.
+millennium of existence. She closed her eyes and slumped on the ground. _Erfan...I am coming...I am coming, my son..._
+She slept tasting blood in her throat. Rocks had never felt so soft. A wave caressed her bleeding cheek. The Gates of Hell stood before her.
 
