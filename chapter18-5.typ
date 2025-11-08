@@ -51,7 +51,7 @@ man's heart. She remembered kissing Regnant the Dragonslayer who had seemed the 
 
 "Messiahs cannot be traitors."
 
-The day had come then. Another day where she would stand in the middle of two misshapen columns built with countless corpses. Her first painting, one she had co-authored with Regnant the Dragonslayer, one that had loomed impossibly high. A necessity it had been to fuse the Magi’s bodies using flesh and bone as cement into these writhing towers from which faces emerged. Magi had once prided themselves into being able to manipulate flesh as if it was paint, metal or stone. Therefore, Serena and her followers had dedicated this monument that twisted upwards in an unnatural spiral to the vanquished. It was there that Serena had attained godhood.
+The day had come then. Another day when she would stand in the middle of two misshapen columns built with countless corpses. Her first painting, one she had co-authored with Regnant the Dragonslayer, one that had loomed impossibly high. A necessity it had been to fuse the Magi’s bodies using flesh and bone as cement into these writhing towers from which faces emerged. Magi had once prided themselves into being able to manipulate flesh as if it was paint, metal or stone. Therefore, Serena and her followers had dedicated this monument that twisted upwards in an unnatural spiral to the vanquished. It was there that Serena had attained godhood.
 
 Nix's wails of agony returned Serena to the present.
 
@@ -75,20 +75,22 @@ Nix's eyes showed both incomprehension and hatred simultaneously.
 The dove deposited the artifact within Serena's palm. Within the medallion laid 
 a signet, one that bore the seal of an Elysian Empress. The Elysian gryphon was carved on the ring.  But what caught Nix's eye as Serena expected was the engraving encircling the Elysian beast: to the daughter of Aishula and Nosrau, the Emperor of Kings, may the prophecy light your way.
 
+"It would seem Majorian was not jesting, Phoenix Wing or should I say, Princess of Kings."
+
 "Why?" said Nix.
 
-"I did not want you to know... You would have enacted the prophecy. Some things are better left unknown to the common of mortals," said Serena.
+"I did not want you to know... You would have enacted the prophecy. There are many in the Elysian Empire who would have acclaimed you. You would have been swallowed by wars waged in your name. Some things are better left unknown to the common of mortals," said Serena.
 
 "The Goddess believes in prophecies... Madness."
 
-"Prophecies preclude the Age of Magic. They are not to be taken lightly."
+"Prophecies preclude the Age of Magic. They are the oldest form of magic and are not to be taken lightly."
 
-"You think me capable of conquest?"
+"Ludicrous. Absolutely ludicrous. You think me capable of conquest?"
 
 Serena touched Nix's wounded hands, the latter's blood clinging to her own 
-bloody palm. "I have seen the games you play with Majorian. I have seen how your eyes brighten when you wear a crown. You can be dreadful at times, Phoenix Wing."
+bloody palm. "I have seen the games you play with Majorian. I have seen how your eyes brighten when you wear a crown. Those were the eyes of someone yearning for unadulterated power. You can be dreadful at times, Phoenix Wing."
 
-"How is aspiring to change the world frightening to your kind?"
+"Have you lost the aptitude of logic? How is aspiring to change the world frightening to your kind?"
 
 "I have walked the path you are intending to walk. It will rob you of empathy as it did with me."
 
@@ -115,6 +117,10 @@ Serena shook her head.
 
 Nix spat a mouthful of blood. "Simplicity? SIMPLICITY? There is no simplicity when one is a Magi."
 
+The watchtowers of the Marroan Walls were now visible in great detail. Serena saw guards loitering at their posts playing children's card games. She pitied them for they would soon have to reckon with the existence of monsters again. They would clamor for her name and she would never answer again.
+
+Serena lowered her altitude. The denizens of Thanatopolis living in this section of the ramparts were cooking curries perfumed with coriander and baking honey laced pancakes. If only she could eat. She remembered the last meal Nix and her had cooked: this roasted duck with thymes and a white wine based sauce that spent twelve minutes in the imperial oven beneath their apartment. 
+
 A dog barked beneath her. Spartak. Another mistake Nix had made was not to bring her dog to the Exiles's Island. Serena had never told Nix about its true origins. She panted as she landed on the shores of the imperial capital. The contents of her failing guts invaded her nose. Serena cursed. There was so much she wanted to discuss with Nix now that Serena became the Goddess anew. 
 
 "This is where our paths diverge, Phoenix Wing."
@@ -123,12 +129,22 @@ A dog barked beneath her. Spartak. Another mistake Nix had made was not to bring
 
 Serena used her last reserves of strength to produce the smile she always showed before Nix. "You Magi have inflicted much worse on me."
 
+"You lie. You were a vain Goddess. You did not save Baba, me nor Majorian."
+
+"It is not the duty of the Goddess to save everyone."
+
+"Worthless! All of your lies are worthless!"
+
+"Do you doubt it, then? My love for you, sweet sister?"
+
+"Love? You call this love? It is no wonder you were alone for a millennium. The whole world rejects you, Serena. The Gatekeeper have mercy on you."
+
 Serena put Nix on Spartak's back.
 
 "You know what to do," said Serena to Spartak.
 
-Spartak barked, sprinting for Thanatopolis' walls. Serena smiled. A cool breeze 
-brushed her bloodied hair. This has been a beautiful 
+Spartak barked, sprinting for Thanatopolis' inner walls. Nix roared in pain on its back. Serena smiled. At least the life of her dear sister would be spared. A cool breeze 
+brushed Serena's bloodied hair. This has been a beautiful 
 millennium of existence. She closed her eyes and slumped on the ground. _Erfan...I am coming...I am coming, my son..._
-She slept tasting blood in her throat. Rocks had never felt so soft. A wave caressed her bleeding cheek. The Gates of Hell stood before her.
+She slept tasting blood in her throat. Rocks had never felt so soft. A wave caressed her bleeding cheek. She saw herself as a child again, a curious girl who touched the magical toys her parents gifted her and Nix. She witnessed the forbidden kiss she gave the past Nix under a starry sky and the outrage it ignited in their parents. Love. Love for Nix. Love for Regnant the DragonSlayer. Love for Erfan. Everything she had done was in the name of love. In the end, love carried her to the river of souls. The Gates of Hell stood before her.
 
