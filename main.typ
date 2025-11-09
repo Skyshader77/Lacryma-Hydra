@@ -75,5 +75,7 @@
 #include "chapter19.typ"
 = Chapter 26
 #include "chapter25.typ"
+= Chapter 27
+#include "chapter26.typ"
 
 
