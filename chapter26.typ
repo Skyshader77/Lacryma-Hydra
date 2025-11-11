@@ -123,15 +123,20 @@ _Who else can be wed to the general?_
 The Elysian flashed a cruel smile on her left cheek. Livia let out a litany 
 of unheard screeches.
 
+_No! No! No! You cannot!_
+
+"This country will face great hardships in the coming days. That Giant must disappear. Magic failed me, but denarii will not."
+
+All of this must be a nightmare. Giants and demons? Livia wanted to hurl her head at a hard surface to see if she would wake up. Physicians sometimes told the tales of patients who 
+were imprisoned on their bed, imagining demons crawl on the covers. Perhaps she was suffering from a severe case of this affliction. _Goddess wake me up from this ordeal,_ thought Livia.
+
 "Have you not understood anything, Princess? I am just enjoying your sweet voice before it becomes mine. Men obey your voice without question. All I desire is this perfect body of yours that can command armies. "
 
 Livia felt the atrocious bulge dissipate. A deafening crash struck her head. Tears ran from her eyes. Again and again, she tried yelling for help. Her upper body arched itself in an almost impossible way. Her inner invader infiltrated all bones and muscles. The swarm of minuscule spiders nested in all tissues and nerves of her very being. Soon, none of her limbs nor organs responded to her orders. Livia no longer sensed her own heartbeat nor her own breath.
 
-"It is done, Princess," said Livia' voice. 
+"It is done, Princess. This porcelain skin, these silk clothes, all mine now. Your will is now enslaved to mine," said Livia' voice. 
 
 Livia exploded into a frenzy of pleas and cries upon hearing that sentence.
 Her body left the bed, raising her hands in front of her face. The vanity mirror showed her grinning face, her eyes radiating a crimson glow.
-
-
 
 

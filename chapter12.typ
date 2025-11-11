@@ -47,7 +47,7 @@ A cough came behind her. Nix yelped.
 
 A long haired person of her age stood there, flashing a familiar smile. 
 Like her, they had been cursed with uniqueness for she knew the Goddess 
-has given them both male and female genitalia. In fact, one often had to wonder 
+has given Majorian both male and female genitalia. In fact, one often had to wonder 
 if this Majorian fellow was a man or a woman. Majorian could pass as both 
 without much effort. To Nix, having being bestowed both male and female 
 components made them the pinnacle of human beauty.
@@ -166,7 +166,7 @@ who would seize Thanatopolis.
 
 "Clever poetry. Would it please you to recite some for me?"
 
-Before he could soothe with songs, the sound of boots clattering in the corridor alerted her. Nix scoured the room. Majorian gasped as her hands dragged him under Livia's bed. His breath was pressed against her left hand.
+Before they could soothe her with songs, the sound of boots clattering in the corridor alerted her. Nix scoured the room. Majorian gasped as her hands dragged them under Livia's bed. His breath was pressed against her left hand.
 
 Two sets of boots entered the tiled floor. Nix deduced they were Excurbitores by the weight of their footsteps. 
 

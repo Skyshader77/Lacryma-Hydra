@@ -2,11 +2,18 @@ In the history books, it would have taken climbing a mountain of skulls to achie
 
 Frescoes detailing the Empire’s past victories against the Donians unwinded before any visitor. Nix had once touched the painted marble, letting her mind travel through time. From Emperor Marro reuniting the Tiarmat and Medean Empires one last time to the desperate struggle against Molochian hordes, the memories of the elders resurfaced through art. They had always succeeded in rocking Nix within her present hammock, singing songs of bravery and treason.
 
-The first man entered the titanic bronze gates, rows of Excubitores struck the pristine floor, announcing his coming. Mechanical birds sang. Some were as small as a fist. Others were as large as a melon. When one pulled a string on their back, they would emit the exact same noise as a real life bird. Most of the time, they would be found on the tree of gilt bronze in front of the Emperor’s throne. Another invention used to wow the barbarian emissaries that would waddle in court. Today, Nix asked her pupil to display one that showed a house standing on mushrooms with an old lady in front of it. A young girl was running away from a bear next to the home while carrying what appeared to be a fish in her hands.
+The first man entered the titanic bronze gates, rows of Excubitores struck the pristine floor with the end of their spear, announcing his coming. Mechanical birds sang. Some were as small as a fist. Others were as large as a melon. When one pulled a string on their back, they would emit the exact same noise as a real life bird. Most of the time, they would be found on the tree of gilt bronze in front of the Emperor’s throne. Another invention used to wow the barbarian emissaries that would waddle in court. Today, Nix asked her pupil to display one that showed a house standing on mushrooms with an old lady in front of it. A young girl was running away from a bear next to the home while carrying what appeared to be a fish in her hands.
 
-The father and the mother, ragged farmers from the capital’s outskirts, came before the Emperor with their son. The child toddled in awe of the grandiose architecture before stopping in front of her elevated throne illuminated by the building’s oculus. He charmed the ranks of noblewomen eyeing him with affection. The little one’s pupils loitered around the coffered concrete dome. Above, constellations were mapped via glintstones on the ceiling.
+The father and the mother, ragged farmers from the capital’s outskirts, came before the Emperor with their son. The child toddled in awe of the grandiose architecture before stopping in front of Ralens the Younger's elevated throne illuminated by the building’s oculus. He charmed the ranks of noblewomen eyeing him with affection. The little one’s pupils loitered around the coffered concrete dome. Above, constellations were mapped via glint stones on the ceiling.
 
 "I too was impressed like you, little one, by these. Have you seen our collection of statues? Emperor Tiarmat wrestling a bull can also help foster your imagination." Nix mused. "How may the crown guide you today, my dear?"
+
+Her hands rested on the throne's right armchair, feeling the soft texture of the thousands of phoenix feathers that constituted the upper layer. The Red Guild always preferred to pull the strings behind the throne and never succumbing to the temptation of sitting on it. While Nix understood the merits of now exposing one to danger, the benefits of being the actual Emperor instead of being the Emperor in name only vastly outweighed the drawbacks. First of all, she could all of Livia's sumptuous garments without fear of reprisals. Second of all, there 
+was the prestige of making men bow before you. In fact, it was the only position where women could have men prostrate themselves before them.
+
+On her right, Majorian wielded a flute. They were draped in a Scholae Palatinae's breastplate. Underneath the armor, laid a noblewomen's turquoise dress embroidered with flying bats and owls. They sang the ode of the Goddess' Ascension. It was a song that made Claradore grind his teeth. The Crimson Spider stiffened his arms and legs at every word of that poem that lauded the defeat of the last Magi who were known as the Clarans. But Majorian was in luck as Claradore had other matters to attend to. 
+
+Nix gestured for the farmer and his family to come.
 
 The man lunged forward, shoving his child aside. "Milord, this whore cheated on me for a low life scoundrel. I am divorcing her; the boy belongs to me by right. He is old enough to work on my fields," said the man, his bloodshot eyes darting his bruised wife.
 
@@ -14,7 +21,7 @@ The man lunged forward, shoving his child aside. "Milord, this whore cheated on 
 
 "Wench! See milord, the whore lies in front of you! You have all the evidence of her debauchery. The boy must be mine!"
 
-"I see the matter relates to the custody of your son. As the divine representative of the Goddess on the mortal plane, I will provide guidance for you. Do you swear by the Goddess you shall respect my decision?" said Ralens in the Classical Tongue. #emph[Flawless discourse.] The fruits of laborious nights spent rehearsing this type of answer grew from the throne. Nix picked one, savoring its sour taste.
+"I see the matter relates to the custody of your son. As the divine representative of the Goddess on the mortal plane, I will provide guidance for you. Do you swear by the Goddess you shall respect my decision?" said Ralens in the Classical Tongue. #emph[Flawless discourse,] though Nix. The fruits of laborious nights spent rehearsing this type of answer grew from the throne. Nix picked one, savoring its sour taste.
 
 Both parents acquiesced his words. Ralens turned to Nix.
 
@@ -24,7 +31,7 @@ Both parents acquiesced his words. Ralens turned to Nix.
 
 "Seven sheep and five cows," said the father. #emph[Let’s play.]
 
-"Five sheep and three cows."
+"Five sheep and three cows," said Nix.
 
 "Stop! Please! You can’t do this! My baby is not for sale!"
 
