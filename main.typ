@@ -79,5 +79,5 @@
 #include "chapter25.typ"
 = Chapter 28
 #include "chapter26.typ"
-
-
+= Epilogue
+#include "ending.typ"
