@@ -1,4 +1,58 @@
-Erratic shamans collected still beating hearts from the crucified sacrifices. Convicts, rapists, killers, all unwanted by Medean society. Some of the Faithful from the riots were brought in. Haggard men and women with denailed hands.
+Livia's eyes glowed red in front of her vanity mirror. Her armada of brushes awaited her commands. She steered one of them, painting her skin to emulate the porcelain texture Purpleborn such as her were known. Crimson shadows were applied under her eyes.  She wore the scarlet and black dress she had fancied as Nix. This body was beauty honed into weaponry. Ordogan was but the latest unknowing victim to this weapon the Medean nobility had to wield.
+
+"Did you feel every moment in the darkness?" asked Livia to her reflection. 
+Unlike months ago, the consciousness that inhabited the mirror did not answer.
+It was a good omen. Livia smiled.
+
+"Every touch...Every breath was mine to give. It was I who surrendered to him."
+
+Ordogan's cologne lingered in her room, a fiery sting 
+delivered by sandalwood and geranium.
+
+"If only he knew that I wore you like a costume...What would he say?" She grinned, smacking her red lips. "The truth will annihilate you both but rest assured, as long as my will drives you, the truth will never come out."
+
+She flaunted the ring Ordogan gifted her. It has only occurred to her now that 
+she has never seen the ring Domitian would have procured her. However, she was sure that the late Magister Militum would have never accepted reforging the diamond from Aishula's signet into a ring. Domitian would have questioned her unlike Ordogan. The half-Molochian was a true soldier. He obeyed orders akin to a loyal dog without question and kept the army at arm's length. 
+
+A globe of the Known World stood on her desk. Claradore's Artifice was perched atop.
+
+"When did you get here?" asked Livia.
+
+"Is a man not allowed to visit his greatest creation?" said the Artifice.
+
+"I am not a creation. I am an Empress. I have an army to send off in a few hours."
+
+"Intriguing. So your will has become hers. The True Goddess be blessed that no more Magi are alive."
+
+"Why do you insist on speaking in riddles? My will has always been mine."
+
+"Has it? Tell me, what is your name?"
+
+Livia found herself hesitating. The answer was obvious but something deep within her hearkened for another answer. An uneasiness swept through her.
+
+"Livia has always been my name," said Livia, shuddering from her own words.
+
+"Yes, it has always been your name, my dear."
+
+The Artifice flew away from the globe it was standing on. Nix grabbed the item.
+
+"The Cachalot Kingdom has not accepted my demands," said Livia. That was an understatement. The Cachalots returned the head of her ambassador with the word cunt branded on the dead man's forehead.
+
+"And so you send Ordogan to depose their pathetic excuse of a king: Kaizeric. What an exemplary casus belli."
+
+"He will fall. He must. The Cachalots have grown soft in their occupation of 
+the province of Varhan. They will not be expecting a direct strike."
+
+"And will you do alone in Thanatopolis?"
+
+"Raise the child Ordogan has given me. He will be a Magi, won't he?"
+
+"Yes, the second Magi born in a millennium."
+
+Baba had given her a world to live in. It was always the duty of the parent to bestow a greater gift to their children than what their own parents had given her. In her case, Livia would be donating a whole empire to her child. She glanced at the mirror. Her eyes returned to the natural blue she has always known. She held the globe in her palm. _Mine, all mine,_
+thought Livia. 
+
+In the Hippodrome, Erratic shamans collected still beating hearts from the crucified sacrifices. Convicts, rapists, killers, all unwanted by Medean society. Some of the Faithful from the riots were brought in. Haggard men and women with denailed hands.
 
 The shamans squeezed the hearts with their elongated nails, smearing blood on their thumb. They blessed the auxiliary palatine guards’ forehead with the bloodied fingertip. Like the finest dramaturge, the priests’ devotion made her shudder. Guttural throat singing accompanied the ceremony held in the Hippodrome. It would be the last thing the Faithful and the Firsborn’s acolytes would hear when she would liberate their soil.
 
