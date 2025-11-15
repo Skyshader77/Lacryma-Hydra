@@ -35,9 +35,33 @@ It was as if a thousand years had not passed between them. The only two remainin
 
 "Your man, Boniface, has murdered the Nameless Slave. I was disappointed. Without her, you would not be able to ascend the skies," said Serena.
 
-"She has served her purpose and is no longer needed."
+"She has served her purpose and is no longer needed. You were there were you not? You chose to let things be."
 
 Pragmatic and cruel just as she remembered him.
+
+"A Goddess does not trouble herself with the living."
+
+He chuckled. "It is tiring indeed to do nothing while the world rots around you. You feint innocence and ignorance. Magi have returned, and you have done all but ensured their destruction."
+
+"Is it not the duty of the Goddess' Hand to slay Magi? Or have the test of time taken its toll on you too, Alexander."
+
+"My course of action is codependent on yours. Will you oppose me, you who have mingled with the Magi for all these years? "
+
+She yawned. Yet there stood a Giant who had served her for decades, no centuries. She had lost the ability to present a mask in front of him. She could only hope that he had forgotten how to read through her lips. "The Magi are of no concern and will be dealt with in due time."
+
+He cackled, exhibiting his yellow crooked teeth. Zealotry oozed out of his every breath. Serena did not think it possible for such religious fervor to descend into madness. But at the end of their last dance, hatred laid bare in his defeated eyes. She should have executed him then. Instead, she had left Metarexia, never to return.
+
+"What are those Magi to you? Are they truly worth risking the return of slave armies? You would let this word return to the shackles of magic?"
+
+"Two Magi can hardly imprison anyone," lied Serena.
+
+"A dragon in a sea of sheep is still a dragon. That child, Claradore, he knows what I am. The time to strike is now."
+
+He waved his hand.
+
+"So it is true. You have deserted us. Heed my warning then. The Magi must be destroyed. Stand in my way, and you will see that I have learned from my mistakes," said Alexander.
+
+"The disciple bluffs in front of the Goddess. Return to Metarexia, Disciple while you still can. This time, I will not grant you the privilege of mercy."
 
 In the distance she peered a bird with a human head flying away. The day had come.
 
