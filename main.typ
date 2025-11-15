@@ -60,24 +60,26 @@
 = Chapter 18
 #include "chapter16-1.typ"
 = Chapter 19
-#include "chapter16-5.typ"
+#include "chapter16-2.typ"
 = Chapter 20
-#include "chapter17.typ"
+#include "chapter16-5.typ"
 = Chapter 21
-#include "chapter17-1.typ"
+#include "chapter17.typ"
 = Chapter 22
-#include "chapter17-2.typ"
+#include "chapter17-1.typ"
 = Chapter 23
-#include "chapter17-5.typ"
+#include "chapter17-2.typ"
 = Chapter 24
-#include "chapter18.typ"
+#include "chapter17-5.typ"
 = Chapter 25
-#include "chapter18-5.typ"
+#include "chapter18.typ"
 = Chapter 26
-#include "chapter19.typ"
+#include "chapter18-5.typ"
 = Chapter 27
-#include "chapter25.typ"
+#include "chapter19.typ"
 = Chapter 28
+#include "chapter25.typ"
+= Chapter 29
 #include "chapter26.typ"
 = Epilogue
 #include "ending.typ"
