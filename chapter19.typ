@@ -42,7 +42,20 @@ Spartak entered the room, carrying a basket filled with dead doves, probably her
 
 She felt tears on her wounded face. They mixed with whatever the blisters secreted, its repulsing texture landing on her lips. "I’m sorry Spartak, I will make it up to you. I promise," said Nix.
 
-They stayed locked in embrace as they had done the first night following Baba’s death. In the makeshift tent Claradore had made for them, Nix had emptied her body of tears and screams. Today, Spartak’s twenty-seven greater palms frame could have easily crushed her smaller body.
+The thing called Majorian stood at the door, sadness deforming its monstrous face.
+Its wings were curled around its figure.
+
+"You...Live..." they said.
+
+"I would rather not be alive," said Nix.
+
+"That...Makes...Two...Of...Us."
+
+Baba, Serena, Majorian. Three failures that defined Nix's existence. What use was being a Magi if you failed to shield those you love from the Faith's brutality.
+
+Majorian sang, their vocal chords using a female voice to produce a song exuding unfathomable sorrow. Nix mourned the loss of her only friend, the corruption of her lover, the maiming of hers and Claradore's body. They had chosen to challenge the will of those who presided over the Known World for a thousand years. Humans never questioned the status quo as long as it yielded stability. In fact, one could argue that freedom of will was eclipsed by stability. 
+
+She and Spartak stayed locked in embrace as they had done the first night following Baba’s death. In the makeshift tent Claradore had made for them, Nix had emptied her body of tears and screams. Today, Spartak’s twenty-seven greater palms frame could have easily crushed her smaller body.
 
 Unforgivable. Alexander had made her puppy cry. If only Nix could have shone a light on Serena’s masks sooner. A girl that she could have trusted with her deepest secrets and desires. A girl that would have undertaken grand adventures with her. A girl that she could display her magic before her amazed eyes, not caring about the Faith and their white robes. It had all been too good to be true. Nix had shown herself to be weak and the weak get beaten.
 
@@ -51,3 +64,49 @@ A droplet of blood fell on the floor. A rat surged out of its hole to drink it. 
 This was nothing compared to what she could do with her usual hosts. How many cats had she exhausted to spy on courtiers, nobles and the Emperor’s entourage? No reasonable human would ever suspect their feline friends of wearing masks. The bond between an animal and a human was immune to the disease of betrayal. Nix was both intrigued and jealous of that fact.
 
 #emph[A cat’s face was a near perfect mask.]
+
+"My dear, your orders are to stay hidden, all of you."
+
+_All of us?_ thought Nix.
+
+She turned towards Majorian. 
+
+"Do you truly stand with us?" Nix asked them.
+
+Majorian crept closer to her bed. It touched her bruised cheek with its claw. Somehow it still possessed a woman's docility and a man's strength. 
+
+"They...made...me...into...a...chronicler," Majorian said. 
+
+Claradore nodded. "This Magrub Doga spoke to me. It is a most fascinating specimen. To think Magrub Dogas could retain their will. It is not here to deceive us but to record our demise. The Faith will want the Known World to know it destroyed the Last Magi, for good. It needs a story to rally the people around its lies."
+
+"We cannot stay here," said Nix.
+
+"The plan is to abandon the capital and to scatter in the countryside."
+
+Nix felt colors drain from her scarred face. Leave Thanatopolis? A wicked turn of the wheel of fate. She would accomplish Serena and Majorian's goal unwillingly. 
+There were no more tears to cry. All of what the Red Guild had built in the imperial capital was for naught, undone by a single Giant. Right now as she lingered in his makeshift deathbed, Livia and Domitian returned to the city.
+Without Claradore steering the ship, the rats could board the deck and seize it.
+Nix had no doubt that Livia would purge Claradore's followers from court. A tactical retreat in the face of overwhelming odds was the right move. Or was it?
+
+"Where is the princess?" asked Nix.
+
+"My dear, you cared for the princess's fate," replied Claradore.
+
+"Our enemies believe us broken. They grow careless. Even now they sack our camp, searching for gold that does not exist. A man hoarding riches in his arms is wide open. This is when we strike."
+
+A wide sneer was curled on the Artifice's visage. "And how do you propose we strike? We are debilitated."
+
+"You commanded the Red Guild to hide themselves. And what better hiding place than in plain sight? We remain within the Palace walls." 
+
+The Artifice rotated its human head 720 degrees. Bones cracked. "My dear, this is a suicidal charge."
+
+Nix whisked her index finger. "On the contrary, the two of cannot prevail over that Giant. Yet as you told me many times, a single Magi cannot triumph over army. And what better army than the Medean host. It only obeys one individual, does it not? If I were to become one with Livia, unite my flesh with her, that army will only answer to me."
+
+"My dear, this is not the same as the trial from earlier. The True Goddess knows how long you must remain concealed in her body. Days? Weeks? Month? Even I cannot foresee what that might do to you both."
+
+"It matters not. The crown is all we need."
+
+"An...Elysian...On...The...Throne...The...Prophecy..." sang Majorian.
+
+"Damn your prophecies! Even if it costs me my last breath, I will see this world burn and forge a new order from the ashes. And Livia is the key to our deliverance," said Nix.
+
