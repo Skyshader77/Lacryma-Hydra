@@ -81,5 +81,7 @@
 #include "chapter25.typ"
 = Chapter 29
 #include "chapter26.typ"
+= Penultimate
+#include "penultimate.typ"
 = Epilogue
 #include "ending.typ"
