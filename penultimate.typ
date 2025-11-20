@@ -88,3 +88,22 @@ fermented by decades of glorious battlefield victories.
 _An Elysian and a Molochian on the throne. The Sarvitarians must be rolling in their graves,_ thought Livia.
 
 
+The Andamite Stairs of the Palace Complex had been cleaned of any speckle of dust.
+On this auspicious day, she chose to cloak herself in a purple gown patterned with the Tiarmat hydra. Her mother's medallion hung from her neck. Thanatopolis itself had stopped breathing. All gathered in the streets for the coronation of their new Emperor.
+
+Livia and Ordogan walked down the Andamite Stairs. He was dressed in a resplendent purple tunic with phoenix and dragon motifs intertwining in what appeared to be the Battle of Hecatopolis. Columns of Excubitores and Scholae Palatinae flanked both sides of the streets. Massed citizens erupted in thunderous applause. 
+
+"Victory to Emperor Ordogan!" they shouted in the Imperial Tongue.
+
+She wore the unique flagrance of saffron, jasmine and rose that only the Medean Empress could possess. The populace could smell her. She wanted them to. It was her birthright, her divine right. 
+
+Trumpets, mechanical birds and drums sang their symphony behind the imperial couple. She held Ordogan's hand, his hold reeking of trust. They marched through the colonnaded streets. below Charov's Aqueduct, before entering the Plaza of Kornikus' arches. 
+
+A chorus of cheers greeted them.
+
+"Here to His August Majesty Ordogan!" proclaimed the orators, spider tattoos covering their necks. One by one children came, delivering to them goods from her favorite shrimp dumplings to flowery wreaths. Ordogan held them in his arms. 
+Her old self would have never bathed with the denizens. Yet Livia aspired to be an empress of the people. 
+It was her destiny to lead the Empire to greater heights. The drums of war were beating, and the populace needed total and blinding confidence in their mistress.
+
+It was a dream come true. Livia had never believed in fairy tales but maybe once this time, she could imagine herself living in one. The witch and the talented general at the zenith of this country? The poets, writers and philosophers of the future would do a vivisection of this for the centuries to come.
+
