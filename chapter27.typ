@@ -1,3 +1,43 @@
+When Livia first heard about the Empire's caches of Medean Fire, she had overheard Claradore inquiring about their condition. Livia had imagined a few dozen barrels or amphoraes lingering in a subterranean den, accumulating mold while rats or roaches sipped the leaking liquid. Never did she think the crates or amphoraes could fill the entirety of a cistern. She almost dropped the shrimp dumpling she was savoring.
+
+A mix of oil and sulfur permeated the underground air. Pyromancers and alchemists dressed in their iconic black robes and dragon shaped masks that prevented them from inhaling the toxic fumes. Livia of course had been gifted one of these masks. How anyone could see through the two minuscule holes was beyond her comprehension? It was no surprise that the pyromancers and alchemists always collided with mules, donkeys and carts on the streets of Thanatopolis.
+
+She observed the frescoes depicting the Goddess spouting fire at Elysian soldiers. Other mosaics hearkened to the pyromancers' previous uses for the Empire. The mosaics showed flames licking the toes and fingers of prisoners. That was of course before the recipe for Medean Fire had been generated.   
+
+"My Lady has taken an interest in our craft, it seems," said the Magister Ignis, the eunuch Sotober. The one-eyed man's head only reached her elbow, a consequence of his own mother throwing him into a well after childbirth. 
+
+"Magisters and Cardinals are vanishing one after the other. The court begins whispering. They need to be reassured," said Livia.
+
+"I hear monsters roam the surroundings. Are any of it true?"
+
+"The crown is investigating all sorts of matters. What can you tell me about your capabilities, Magister Ignis?"
+
+Sotober twisted his lips. "We have enough fire to make the Palace Complex into a volcano, your August Majesty."
+
+A non magical way of matching the most potent of the Magi's spells. Livia did not want to admit it, but the non Magi had impressed her. Even the alchemists' own secrecy was second to none. The recipe was passed down from son to father. Medean Emperors were forbidden to know the contents.
+
+"Would you love watching a volcano, Lord Sotober?" said Livia.
+
+"My Lady asks a philosophical question. There is not a single pyromancer who is not a pyromaniac. Your ancestors had denied us the right to use the Flames on the Molochian Hordes."
+
+"The Walls of Thanatopolis had stood strong. If you desire to watch an eruption, you will transport a number of amphoraes for me. You will only move them at night. Ships will be provided. No word of this must reach the Emperor nor the Magister Militums."
+
+A flicker of curiosity lit Sotober's face. 
+"My Lady has a destination in mind?"
+
+Livia knew exactly where she would send the amphoraes to.
+
+In the latrines, she stared at her own hand, one that was now incapable of liquefying. Becoming royalty had come with a price or had it? Claradore had cautioned her against using magic in her new vessel. Why she had asked? She only received the vaguest of answers from the Artifice. Yet the sensation of being a Magi perdured. It craved to be released again. 
+
+She recited a cant as she slowed her breathing. Livia could not let herself be defenseless. In the most optimistic of scenarios, she would let the Excubitores shield her from danger. In the most pessimistic of scenarios, she would slay all witnesses. _I am a Magi,_ she thought. Two imperial bloodlines coursed through her veins. She would not be denied her birthright.
+
+Livia snapped her fingers. Nothing. She snapped again. Still nothing. 
+Yet, all elements of her body believed magic to be possible. She closed her eyes, hearing her own heartbeat. 
+
+Again.
+
+Her thumb made contact with her index finger. A spark. A tiny flame. It danced on her fingertip. It was the very first spell she had learned at Baba's House. Livia grinned. 
+
 "Why were you meeting the alchemists?" Domitian asked. His breath reeked of alcohol. Lipstick lingered on his neck coated with sweat. How her old self was not privy to this was beyond her understanding. At least the revelation made her decision all the easier.
 
 "The pyromancers offered a fire show for our wedding. They wished to demonstrate their talents," lied Livia.
