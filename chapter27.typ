@@ -84,3 +84,63 @@ An Excubitore pointed their sword at his throat.
 said the Excubitore.
 
 "It is no use to speak to such men. The evidence is bare for all to see. Cardinal Alexander sent these men. Kill them. Kill them all," hissed Livia.
+
+She was escorted back to her chambers in the Palace Complex. Livia laid on her bed, her arm covering her forehead. She took a whiff of her own flagrance, a habit she has developed since her rebirth. The reckoning of Domitian's death would ripple through Thanatopolis. 
+
+In the morning, she would have to don her mourning gown for the second time this year. This time, she would be the conductor of death. Courtiers and spies had already propagated the rumors. The Faith would lay the blame on the Magi, doubling their efforts in locating Nix and Claradore. The people's eyes would be on him. The center of the amphitheater would belong to Alexander from now here. Behind the curtains, she would be free to sow the seeds of his destruction. 
+
+A rough knock echoed on her door. Opening the door revealed Ordogan. He was enrobed in a purple cape pinned on his Molochian lamellar armor. By now, he would have known that the title of Magister Militum per Orientem belonged to him alone. 
+Ordogan may be a lion on the battlefield but in her room he was but a naive seal 
+swimming in shark infested waters. Livia sensed blood and she would be denied her prize.
+
+"My deepest condolences for you loss, My Lady," he said.
+
+Livia opened up the hostilities with an embrace. Her old self would have never even dared touch a Molochian such as him. She had always admired his broad shoulders and the scars on his neck. He staggered.
+
+"You are to be Magister Militum from now onwards," said Livia.
+
+"My Lady...This is most unexpected," continued Ordogan.
+
+"I have been wrong to judge you, Magister Militum. My father recognized your talents, but my love for my fiance blinded me."
+
+"We all erred in the name of love. Daphne has been one of my greatest mistakes."
+
+She whispered into his ear. "We cannot afford any more errors. The blades that took Domitian's life belonged to none other than Alexander. That man makes my stomach churn. They say he is a monster in human skin."
+
+"We have much to discuss about. I have heard about the monster sightings. They are numerous. There is also the matter of the Magi. If the citizens are to be believed, sorcery has been witnessed at Exiles' Island. Four legions stand ready, your August Majesty."
+
+"No, no, no, we must not act rashly. Our opponent is the Faith itself. The Magi have infiltrated their ranks. They have slumbered for centuries."
+
+"This cannot be...This means..."
+
+"Magi rule the Known World, Magister Militum."
+
+He stood a step backwards. "Then, the Apocalypse..."
+
+"The Faith has already initiated it. The Men of the Crucible we captured told us the Magi wish to remake this world in their image."
+
+"Detestable. This cannot go unpunished."
+
+She gazed at his eyes. Livia knew that all he saw was the pinnacle of beauty by wealth. As Nix, Ordogan would have never breached the boundaries of politeness with her. Yet, the aptitude to rouse and command armies as if they were bronze or clay toys was a most fascinating talent. The Sarvitarians had called it gravitas.
+She wanted him to acknowledge the curiosity in her eyes. Could he even perceive it? This hunger that boiled below her waist. 
+
+"The Faith itself desiring the end of this world? The Goddess has no pity on us. How do we fell a man without igniting a holy war?" said Ordogan.
+
+"The evidence for his crimes must be collected first," said Livia.
+
+"He will not stay idle while we prepare our offensive."
+
+"He gathers his strength at Exiles' Island. I have seen crows and pigeons heading towards Metarexia."
+
+"Must your honor bind you, Ordogan?" said Livia with a honeyed intonation.
+
+Livia tugged the two extremities of her dress. Her robe fell down. A simple surrender to trap her prey. Ordogan's cheeks reddened. He stammered something about this being a grave mistake. She closed the distance with his lips. He reciprocated before stripping his armor.
+
+
+
+
+
+
+
+
+
