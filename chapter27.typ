@@ -89,7 +89,43 @@ She was escorted back to her chambers in the Palace Complex. Livia laid on her b
 
 In the morning, she would have to don her mourning gown for the second time this year. This time, she would be the conductor of death. Courtiers and spies had already propagated the rumors. The Faith would lay the blame on the Magi, doubling their efforts in locating Nix and Claradore. The people's eyes would be on him. The center of the amphitheater would belong to Alexander from now here. Behind the curtains, she would be free to sow the seeds of his destruction. 
 
-A rough knock echoed on her door. Opening the door revealed Ordogan. He was enrobed in a purple cape pinned on his Molochian lamellar armor. By now, he would have known that the title of Magister Militum per Orientem belonged to him alone. 
+Majorian sat on the frame of the window, melancholy filling their eyes. 
+Livia's arms extended to them. Their fingertips touched hers.
+
+"Why have you done it?" Majorian rasped.
+
+"You believe that I had a choice," said Livia.
+
+"A Magi has always an abundance of choice, my love. Words from your lips not mine."
+
+"Do not call me that anymore. There can no longer be any love between us and you know it."
+
+Majorian's monstrous visage contorted in pain.
+
+"Is that what your ambitions have led you? To steal someone else' life."
+
+"Steal? There is no pilfering here."
+
+"That woman...Livia. I can hear her screams. Oh! How they are horrible!"
+
+"You lie. This life is squandered on someone like her. It has always been my right. I am the heiress to the Elysian throne."
+
+"What poison has Claradore fed you? The rules of Magi, do they not apply to you?"
+
+"What are dead men's rules to the living? You were there were you not? Would you prefer me to send back to oblivion like all other Magi?"
+
+Tears flowed from Majorian's eyes. Their four arms gathered around their head as if to simulate human dread.
+"We should have left Thanatopolis..."
+
+"No, Thanatopolis gave us all a purpose. Let us return the favor by leading it against the monsters who have sought our extinction."
+
+"I am sorry, my love...I cannot hold hands with you while you walk this path."
+
+"Then, flee. The play's climax draws near. You will not be on the stage when it unravels."
+
+A rough knock echoed on her door. Majorian departed. The man was supposed to be here an hour ago. The world has seen creatures from the Underworld surface for the first time in a millennium and this man chose to spend this afternoon finalizing a divorce. 
+
+Opening the door revealed Ordogan. He was enrobed in a purple cape pinned on his Molochian lamellar armor. By now, he would have known that the title of Magister Militum per Orientem belonged to him alone. 
 Ordogan may be a lion on the battlefield but in her room he was but a naive seal 
 swimming in shark infested waters. Livia sensed blood and she would be denied her prize.
 
@@ -107,7 +143,7 @@ Livia opened up the hostilities with an embrace. Her old self would have never e
 
 She whispered into his ear. "We cannot afford any more errors. The blades that took Domitian's life belonged to none other than Alexander. That man makes my stomach churn. They say he is a monster in human skin."
 
-"We have much to discuss about. I have heard about the monster sightings. They are numerous. There is also the matter of the Magi. If the citizens are to be believed, sorcery has been witnessed at Exiles' Island. Four legions stand ready, your August Majesty."
+"We have much to discuss about. I have heard about the monsters brought by the Cardinal. There is also the matter of the Magi. If the citizens are to be believed, sorcery has been witnessed at Exiles' Island. Four legions stand ready, your August Majesty."
 
 "No, no, no, we must not act rashly. Our opponent is the Faith itself. The Magi have infiltrated their ranks. They have slumbered for centuries."
 
@@ -130,11 +166,34 @@ She wanted him to acknowledge the curiosity in her eyes. Could he even perceive 
 
 "He will not stay idle while we prepare our offensive."
 
-"He gathers his strength at Exiles' Island. I have seen crows and pigeons heading towards Metarexia."
+"He gathers his strength at Exiles' Island. I have seen crows and pigeons heading towards Metarexia. The monsters are birthed there."
 
-"Must your honor bind you, Ordogan?" said Livia with a honeyed intonation.
+"How many are there?"
 
-Livia tugged the two extremities of her dress. Her robe fell down. A simple surrender to trap her prey. Ordogan's cheeks reddened. He stammered something about this being a grave mistake. She closed the distance with his lips. He reciprocated before stripping his armor.
+"It is difficult to estimate. None of our spies wish to venture there."
+
+"Then, we must gather more troops. We only strike we have overwhelming force."
+
+Livia shook her head.
+
+"Your men may be numerous and brave, but they have never fought Magrub Dogas, have they? What will they do when they realize that monsters truly exist? Will your shield walls hold, or will they dissolve like salt in water? Even the sight of a single creature can make an Excubitore wet himself," said Livia.
+
+"The Underworld can take my soul. I will never cower in fear before a Magi's tricks. Our forefathers have prevailed over the Magi once. We will not disappoint their memory," said Ordogan.
+
+Livia chuckled. If only he knew the truth. His loyalty fitted her like an engagement ring on a thumb. In the game of chess she was playing with Alexander, 
+Ordogan must be the queen. The number of pieces dwindled on the board. The Faith had lost their bishop, Boniface but ther king acted as a queen, toppling her towers: Serena and Claradore. Even her sworn knight, Majorian, became a casualty.  
+
+"The hour grows late, Magister Militum. We have both been strategizing for the better part of this day. Should we meet on another battlefield, one based on trust?" said Livia contemplating the moonlight shining through her window.
+
+"Your August Majesty, I do not understand..."
+
+"You spend your days and nights looking at maps of this empire. Do you feel the cold in your command room? Does it not degrade your concentration? I can offer you warmth, Ordogan."
+
+"My Lady, this is quite an escalation!"
+
+"Must your honor bind you?" said Livia with a honeyed intonation.
+
+Livia tugged the two extremities of her dress. Her robe fell down. A simple surrender to trap her prey. Ordogan's cheeks reddened. His eyes were riveted at her body.  He stammered something about this being a grave mistake. The deer was immobilized, and the phoenix had to sweep in. She closed the distance with his lips. They were even more succulent than Majorian's. He reciprocated, the warmth of his hands caressing her skin, before stripping his armor.
 
 
 
