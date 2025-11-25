@@ -82,6 +82,8 @@
 = Chapter 29
 #include "chapter26.typ"
 = Chapter 30
+#include "chapter26-5.typ"
+= Chapter 31
 #include "chapter27.typ"
 = Penultimate
 #include "penultimate.typ"
