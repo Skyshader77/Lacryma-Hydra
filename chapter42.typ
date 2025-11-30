@@ -3,14 +3,76 @@ unthinkable. The time had not come for him to be a match for Alexander in the ma
 All the blame would be directed towards the Faith.
 
 She struck the vanity mirror with her fist. Blood leaked from her fingers. It was the same color as the velvet and obsidian dress she was draped in. Livia gobbled 
-her pint of red Vyrmogothian wine, her fifth of the day. His disobedience would not go unpunished. Or should it? All he had done since the beginning of their reign was to add unpredictability to a volatile situation. Her inner calculations did not need another variable. _Maybe all could be simplified,_ thought Livia.
+her pint of red Vyrmogothian wine, her fifth of the day. His disobedience would not go unpunished. Or should it? All he had done since the beginning of their reign was to add unpredictability to a volatile situation. Her inner calculations did not need another variable. 
+
+Maybe it was meant to be that the two obstacles to her reign would confront one another while she drank wine from the imperial balcony. _Maybe all could be simplified,_ thought Livia.
+
+Having a coruler brought more drawbacks than benefits. The older Ralens become, the more questions he would shower her with. Her decision-making was not to be questioned. Her already limited authority would evaporate once he reached his maturity or should he wed a bride. It was unlikely that there could be two empresses at court. 
+
+Claradore's cologne ran through her nose. Livia noticed the Artifice's presence.
+It flew inside her room from the open window.
+
+"All is in place, my dear," said the Artifice.
+
+"Ignite it all," said Livia.
+
+"Your brother..."
+
+"Let chance and fire decide his fate."
+
+A wicked grin was drawn on the Artifice's visage. 
+
+"Will the masses not put the blame on you, my dear? You do not want to be the heroine of this story."
+
+Livia nodded. "The Emperor simply made a valiant sacrifice to save our homeland. Nothing else, 
+nothing more. Surely, the masses will dissect this story for the rest of their lives. Statues will be built. Poems will be written."
+
+"A fitting end to the Apocalypse."
+
+The Exiles' Island would soon see the greatest fireworks the Known World has witnessed since the Age of Magic. As the arbitrator, she would watch the Faith and the Magi she sired duel to the death. Once the phoenix and the dove's wings were clipped by magic, all that would remain was the arbitrator themselves. All would end in an inferno.
+
+A cacophony of falling debris rung from the room's entrance. Something 
+tore its way through the door. A claw penetrated through the frame. 
+Magrub Dogas. The figure that entered the room was none other than Majorian.
+
+"I saw the barrels, Nix," said Majorian.
+
+"I will leave you to deal with your old lover," said Claradore before departing through the window.
+
+Livia sat on her bed. The thing called Majorian approached her, baring its fangs and claws.
+
+"Ralens is challenging the Cardinal as we speak," said Majorian with a male voice.
+
+"Is that what he chose to do?" asked Livia. Her tone was cool.
+
+"Do not take me for a fool. This is your doing, is it?"
+
+"The Emperor answers to none."
+
+"You must call him back. By all means necessary."
+
+Livia rolled her eyes. "And how do you suggest I accomplish such a feat? Send a pigeon to the Exiles' Island?"
+
+"You are a Magi are you not? Ralens will need your aid. Now before it is too late."
+
+"He is old enough to suffer the consequences of his actions..."
+
+"So you would see him fall?" Majorian's voice hardened. "What of the promise that was made?"
+
+"That promise was Nix's," Livia said curtly. "Not mine."
 
 The thing called Majorian wept. Its sword like claws were aimed at her throat. 
 She stood there, mocking its conviction. Its weapons screamed for murder, yet its face signalled mercy. It was plain as day. Livia sipped her cup of wine.
 
 "Tell me, what is your name?" it said.
 
-Nix loathed that question. It was an accusation not a question. Has she not demonstrated her worthiness of her station? Why could he not see? It was because it hearkened to a distant past. In fact, Majorian lived in the past, wallowing in nostalgia. What was it with humans and their obsession for the past? In trapping one's self in a previous state of existence, one failed to see the future. Anything was bleak to someone who refused to see past their childhood. By the time an adult reached adulthood, they were acutely aware of misery and hardship. Except that they now wielded the will and power to grant themselves to better their tomorrow.
+Nix loathed that question. It was an accusation not a question. What was it with names? Why did a single name define a person's existence? A name was but an amalgam of vowels and consonants to facilitate integration into a civilized world.
+Was a word given a birth immutable? Livia did not think so. People like her 
+could undergo vast and radical changes. A name was just a piece of clothing that could be worn and discarded at will in that case. Roxanna, Nix, Livia, all of these names were but stepping stones in her life to reach the name and title that she coveted the most: Empress. Once one reached the zenith of power, one's original name mattered little. The history books only referred to rulers of past and present by their chosen pseudonym.
+
+_What is my name?_ She thought, repeating its impertinent question.
+
+Has she not demonstrated her worthiness of her station? Why could he not see? It was because it hearkened to a distant past. In fact, Majorian lived in the past, wallowing in nostalgia. What was it with humans and their obsession for the past? In trapping one's self in a previous state of existence, one failed to see the future. Anything was bleak to someone who refused to see past their childhood. By the time an adult reached adulthood, they were acutely aware of misery and hardship. Except that they now wielded the will and power to grant themselves to better their tomorrow.
 
 Majorian's growl returned her attention to the matter at hand. So it was the Cardinal's contingency. Would it matter?
 In a matter of hours, the greatest gamble of her life would unfold.
@@ -72,7 +134,7 @@ Livia opened her arms. "There is only one way for me to exit this costume. Strik
 
 "There is no honor when crossing steel with fiends and Cardinals."
 
-Majorian swiped. Livia closed her eyes. It would not dare. It had never taken the life of an innocent. Why should that change now? She felt its claws grate against her cheek. Blood trickled. Her heart still beat. There was no pain. When she opened her eyes, the claw was lodged in a fresco depicting the Goddess' final departure from the land of the living. Majorian had perforated the Goddess' head.
+Majorian swiped with his claw. Livia closed her eyes. It would not dare. It had never taken the life of an innocent. Why should that change now? She felt its claws grate against her cheek. Blood trickled. Her heart still beat. There was no pain. When she opened her eyes, the claw was lodged in a fresco depicting the Goddess' final departure from the land of the living. Majorian had perforated the Goddess' head.
 
 "You are weak...You have never killed," said Livia. Majorian had always been her doll. Toys could not harm her.
 
