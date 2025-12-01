@@ -83,7 +83,25 @@ hallucinated the creatures under a drunken state. Safeguarding the roads of the 
 "There is no need to access every rumor the throne receives. Do you know how many letters and petitions claim that sucking a man's phallus can cure all diseases? 
 You would lose your sanity!"
 
-Majorian laughed. Their lips met again. Majorian touched her hips. They were the only occupants of the room. Perhaps they could...
+Majorian laughed. 
+
+"Maybe I am that monster they are referring to..." said Majorian.
+
+"Nonsense! You are no monster!" said Nix.
+
+"My mother would disagree. She meant to cast me down a well."
+
+"And Claradore stole you from her before she could. The Goddess be damned, what a tale that is."
+
+"What are we, you and I? The Monster and the Beauty?"
+
+"Why do you entertain such thoughts? In that story, the Beauty slays the Monster in the end."
+
+"Because this is no song, Nix. No tale told by the fire. Men like me do not die warm in our beds, not while the Faith still draws breath. If I must fall, let it be by your hand rather than torn apart by stones, as they did to your Baba."
+
+"It will never come to that, I swear to you."
+
+Their lips met again. Majorian touched her hips. They were the only occupants of the room. Perhaps they could...
 
 "I hope I am not interrupting anything," said Serena's voice. Nix and Majorian straightened their posture. Majorian's cheeks were flush with embarrassment.
 
