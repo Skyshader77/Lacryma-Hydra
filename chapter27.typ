@@ -83,11 +83,11 @@ An Excubitore pointed their sword at his throat.
 "Your August Majesty, we should interrogate this fiend. Answer me! Who sent you?"
 said the Excubitore.
 
-"It is no use to speak to such men. The evidence is bare for all to see. Cardinal Alexander sent these men. Kill them. Kill them all," hissed Livia.
+"It is no use to speak to such men. The evidence is bare for all to see. Cardinal Sixtus sent these men. Kill them. Kill them all," hissed Livia.
 
 She was escorted back to her chambers in the Palace Complex. Livia laid on her bed, her arm covering her forehead. She took a whiff of her own flagrance, a habit she has developed since her rebirth. The reckoning of Domitian's death would ripple through Thanatopolis. 
 
-In the morning, she would have to don her mourning gown for the second time this year. This time, she would be the conductor of death. Courtiers and spies had already propagated the rumors. The Faith would lay the blame on the Magi, doubling their efforts in locating Nix and Claradore. The people's eyes would be on him. The center of the amphitheater would belong to Alexander from now here. Behind the curtains, she would be free to sow the seeds of his destruction. 
+In the morning, she would have to don her mourning gown for the second time this year. This time, she would be the conductor of death. Courtiers and spies had already propagated the rumors. The Faith would lay the blame on the Magi, doubling their efforts in locating Nix and Claradore. The people's eyes would be on him. The center of the amphitheater would belong to Sixtus from now here. Behind the curtains, she would be free to sow the seeds of his destruction. 
 
 Majorian sat on the frame of the window, melancholy filling their eyes. 
 Livia's arms extended to them. Their fingertips touched hers.
@@ -141,7 +141,7 @@ Livia opened up the hostilities with an embrace. Her old self would have never e
 
 "We all erred in the name of love. Daphne has been one of my greatest mistakes."
 
-She whispered into his ear. "We cannot afford any more errors. The blades that took Domitian's life belonged to none other than Alexander. That man makes my stomach churn. They say he is a monster in human skin."
+She whispered into his ear. "We cannot afford any more errors. The blades that took Domitian's life belonged to none other than Sixtus. That man makes my stomach churn. They say he is a monster in human skin."
 
 "We have much to discuss about. I have heard about the monsters brought by the Cardinal. There is also the matter of the Magi. If the citizens are to be believed, sorcery has been witnessed at Exiles' Island. Four legions stand ready, your August Majesty."
 
@@ -180,7 +180,7 @@ Livia shook her head.
 
 "The Underworld can take my soul. I will never cower in fear before a Magi's tricks. Our forefathers have prevailed over the Magi once. We will not disappoint their memory," said Ordogan.
 
-Livia chuckled. If only he knew the truth. His loyalty fitted her like an engagement ring on a thumb. In the game of chess she was playing with Alexander, 
+Livia chuckled. If only he knew the truth. His loyalty fitted her like an engagement ring on a thumb. In the game of chess she was playing with Sixtus, 
 Ordogan must be the queen. The number of pieces dwindled on the board. The Faith had lost their bishop, Boniface but ther king acted as a queen, toppling her towers: Serena and Claradore. Even her sworn knight, Majorian, became a casualty.  
 
 "The hour grows late, Magister Militum. We have both been strategizing for the better part of this day. Should we meet on another battlefield, one based on trust?" said Livia contemplating the moonlight shining through her window.

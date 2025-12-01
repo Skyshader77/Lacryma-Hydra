@@ -23,7 +23,7 @@ Claradore smirked. "Is that what you say when you put the princess's circlet upo
 
 She scowled. "You have spied on me?"
 
-"My dear, my Artifices hear and see everything. Your first task is simple: pry every secret out of that Alexander. That man troubles my sleep. He has isolated himself at the Exiles' Island. How the populace remains blind to what he truly is: a Giant walking among men is beyond me."
+"My dear, my Artifices hear and see everything. Your first task is simple: pry every secret out of that Sixtus. That man troubles my sleep. He has isolated himself at the Exiles' Island. How the populace remains blind to what he truly is: a Giant walking among men is beyond me."
 
 "Is it of importance if he has made no moves against us?"
 

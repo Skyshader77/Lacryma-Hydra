@@ -6,7 +6,7 @@ Her wings flapped with the vigor of a cancerous patient. Every imperial mile
 she traversed felt as if her entire body had done a marathon. Every breath was a wheeze.
 
 In her arms was cradled Nix who was now a calcined husk of her former self. 
-It was too soon for her to face Alexander. Serena should have ended his life 
+It was too soon for her to face Sixtus. Serena should have ended his life 
 when she had the chance. She had seen first hand how his devotion and admiration 
 transformed him, but her younger self had found it endearing. A grave mistake. 
 It was only when he led armies in her name, razing cities and towns that survived the conquest that she had begun to question his resolve. In sparing the last Giant, she had allowed him to take Erfan away from her and now...Nix as well.
@@ -64,7 +64,7 @@ a deathless life. From drinking mercury to consulting charlatans, emperors and k
 
 Nix did not answer the question. Her breath reeked of blood and scorched organs.
 A younger Serena would have put her out of her misery. Serena wanted to laugh. 
-Alexander and the Nameless Slave had spoken the truth plainly. Old age softened the hearts of all.
+Sixtus and the Nameless Slave had spoken the truth plainly. Old age softened the hearts of all.
 
 Serena ceased flying. A dove approached them, one that carried Nix's unlocked 
 medallion. It was her obligation to return it.

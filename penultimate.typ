@@ -7,17 +7,17 @@ A crater now stood at the Forge's location.
 Molochian horse archers scoured the desolate wasteland ahead of the main army. Crows flew overhead. The air was ripe with smoke and blood. In the distance she glimpsed the glistening domes of the Palace Complex. 
 The shield wall advanced at a slow pace, carefully inspecting every debris for signs of the enemy. At most, they found scattered limbs and scorched skulls.
 
-The pretext she gave was to find the Emperor. As a Purpleborn, she could let the fate of her own brother hang in uncertainty. Livia had to give the pretense of effort in determining his condition. Livia had to resist the temptation of rushing outside barefooted. She had to know. She had to ascertain her triumph. The probability of Alexander surviving years' worth of concentrated Medean fire was infinitesimal. 
+The pretext she gave was to find the Emperor. As a Purpleborn, she could let the fate of her own brother hang in uncertainty. Livia had to give the pretense of effort in determining his condition. Livia had to resist the temptation of rushing outside barefooted. She had to know. She had to ascertain her triumph. The probability of Sixtus surviving years' worth of concentrated Medean fire was infinitesimal. 
 
 She could not believe that the execution of her designs had not dented Thanatopolis itself. The populace witnessed the once in a century firestorm from the shores ten imperial miles away. The official pamphlets and decrees only mentioned disposing of aging stockpiles of Medean Empire. Livia's face curled into a smile. It was quite the irony that she would attain her greatest victory without using any magic. Claradore had been right. There was no Second Age of Magic.
 
 One of the Molochian horse archers shouted something. The rest of the foederati brandished their bows. Livia slide the litter's door.
 
-What remained of Alexander laid before her eyes. The slaves carrying her litter yelped, causing the vehicle to list rightwards. Livia hung to the handles of the litter to stop herself from falling. The only thing she recognized in Alexander was his crimson eye still radiating zealotry. It was almost miraculous that his eye remained intact. He had become an amalgam of burned bones and flesh, clutching what was left of his intestines. Crows and vultures pecked at his skull. _He lives,_ thought Livia.
+What remained of Sixtus laid before her eyes. The slaves carrying her litter yelped, causing the vehicle to list rightwards. Livia hung to the handles of the litter to stop herself from falling. The only thing she recognized in Sixtus was his crimson eye still radiating zealotry. It was almost miraculous that his eye remained intact. He had become an amalgam of burned bones and flesh, clutching what was left of his intestines. Crows and vultures pecked at his skull. _He lives,_ thought Livia.
 
 The Giant glared at her. His skull gritted his ashes ridden teeth. Livia was aware that he aspired to cast an incantation. But with what vigor? The man still lived on the energy of sheer piousness and hatred. 
 
-Ordogan lunged at the monstrosity. With his ceremonial blade, he struck the Giant's skull. A horrible sound ensued. Light vanished from Alexander's eye.
+Ordogan lunged at the monstrosity. With his ceremonial blade, he struck the Giant's skull. A horrible sound ensued. Light vanished from Sixtus's eye.
 It was done. The Giants were no more.
 
 "What is to be done with the corpse?" asked an Excubitore.
@@ -33,7 +33,7 @@ The Medeans would come to the same conclusion she had come to.
 
 "The Emperor is dead," said Ordogan. 
 
-Livia let tears fall from her eyes. This path was forced upon her by Alexander himself. She began sobbing. 
+Livia let tears fall from her eyes. This path was forced upon her by Sixtus himself. She began sobbing. 
 
 "The Faith is truly cruel. My father, my fiancé and now my brother. Has the Goddess not have mercy on my soul? Have not I suffered enough?" said Livia.
 
@@ -45,7 +45,7 @@ What the Red Guild achieved was at most pyrrhic victory. Serena, Majorian, Baba,
 
 "The Apocalypse. Can we truly claim to have turned the tide?"
 
-"Alexander was but a head among a hydra. You and I have seen how monsters rule the world, Magister Militum. Unity is of utmost importance. Our combined strength has vanquished one of them. More surely stir in Metarexia and Persiphon."
+"Sixtus was but a head among a hydra. You and I have seen how monsters rule the world, Magister Militum. Unity is of utmost importance. Our combined strength has vanquished one of them. More surely stir in Metarexia and Persiphon."
 
 "The Rauthengardians and Elysians dwell in the same state of oblivion as we did. Monsters blending in with humans. Magi binding entire nations in chains. My stomach turns at the very thought. A new Emperor must free them from the shackles of the Magi."
 
@@ -66,10 +66,10 @@ Livia was pleased that the proposition left Ordogan speechless. The strategos of
 
 The crucial part of his decision rested on whether he thought sitting on the throne was an honorable decision. Livia would not have asked the question if she had not considered his thought process. He could only provide one answer to her question and that was the answer she wanted.
 
-Ordogan breathed heavily. Alexander's blood trickled down his tired eyes. She closed the distance, caressing his warm cheeks with her well manicured hands.
+Ordogan breathed heavily. Sixtus's blood trickled down his tired eyes. She closed the distance, caressing his warm cheeks with her well manicured hands.
 She was well aware that no man in the Known World could maintain their composure in front of a Purpleborn's visage when it was adorned with the rarest cosmetics the Known World could offer. He was a fortress to assault and everything from her eyeliner to her lipstick were battery rams and siege towers. How many minutes or seconds would it take for him to yield? She knew his mind had already capitulated. But what about his heart?
 
-"The Empire needs a man of your talents to lead it," said Livia. It was the truth. Two emperors had passed away in less than a year. Soon, the vultures of the Rauthengardian and the Elysian Empires would rear their ugly heads. They saw weakness and would exploit it. They would provide her the perfect casus belli. Medean armies would first thrust east to conquer the Elysian Empire before swinging back west. With the Goddess and Alexander erased from existence, 
+"The Empire needs a man of your talents to lead it," said Livia. It was the truth. Two emperors had passed away in less than a year. Soon, the vultures of the Rauthengardian and the Elysian Empires would rear their ugly heads. They saw weakness and would exploit it. They would provide her the perfect casus belli. Medean armies would first thrust east to conquer the Elysian Empire before swinging back west. With the Goddess and Sixtus erased from existence, 
 the Known World belonged to Magi anew.
 
 The smell of Ordogan's clove scented breath brought her back to reality. 

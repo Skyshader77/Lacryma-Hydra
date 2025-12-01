@@ -10,9 +10,9 @@ Her second order was to ascertain the almost probable death of both Boniface and
 
 In all evidence, a celebration was in order. Her marriage was now expedited. In less than a month, she would wed Domitian in Zastrian's Cloister. Swarms of handmaidens and eunuchs scurried from the palace grounds, carrying porphyry furniture to the cathedral. Dressmakers lined up before the Palace Complex, offering their services. She already had a grand vision for her dress, a white swan robe padded with silk purple ribbons. Elaborate phoenix and dove patterns would adorn the attire. The Known World needed to know that her victory was one fo the Purpleborn and the Faith.
 
-"The Cardinal Alexander would like an audience with you on the morrow," said Domitian. The purple cloak of the Emperor was draped over his broad shoulders. It was fastened with a dragon pin that complemented well his toga.
+"The Cardinal Sixtus would like an audience with you on the morrow," said Domitian. The purple cloak of the Emperor was draped over his broad shoulders. It was fastened with a dragon pin that complemented well his toga.
 
-Livia's mind explored the possibility of Alexander eliminating a rival Cardinal and disposing of the heathen Claradore as well. The man was discreet and quiet. He could be dangerous but with Boniface missing, it was in the Faith's best interests to show avarice for attention.
+Livia's mind explored the possibility of Sixtus eliminating a rival Cardinal and disposing of the heathen Claradore as well. The man was discreet and quiet. He could be dangerous but with Boniface missing, it was in the Faith's best interests to show avarice for attention.
 
 "We will hear what he has to say. What do the physicans say about the body the Excubitores found?" said Livia.
 
@@ -105,7 +105,7 @@ Even the slightest advantage could be turned into domination.
 
 "_I...I can give you anything... Wealth, titles, lands, weapons, armies, more than anything Claradore has offered you,_" said Livia.
 
-"Yes, an army would be desirable, wouldn't it? Of course, your dear betrothed would not be leading it. An absolute idiot such as him would be trounced by Alexander."
+"Yes, an army would be desirable, wouldn't it? Of course, your dear betrothed would not be leading it. An absolute idiot such as him would be trounced by Sixtus."
 
 "_I...I can grant you a legion or two to a cunning and ravishing being such as you. Even the title of Magister Militum could be yours._"
 

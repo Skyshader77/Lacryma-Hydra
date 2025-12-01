@@ -102,7 +102,7 @@ Ordogan nodded. "Aggressors do not respect you if they have yet to know fear. No
 
 "I command the army, not Ralens, Master of Armies. Remember, you answer only to me."
 
-Ordogan bowed before her. The gong was struck anew. The shamans waited at the Hydra Column, gesturing at the Goddess’ Bowl. The headless torso belonging to Alexander was crucified above. Blood tricked down into the Goddess’ Bowl. Ordogan and Livia plunged their heads in the sacred bowl. In the waters, she closed her eyes, contemplating herself. #emph[I have made it this far. I will not let a deranged Elysian Emperor endanger my crown. Nosrau shall learn that I am not to be trifled with.]
+Ordogan bowed before her. The gong was struck anew. The shamans waited at the Hydra Column, gesturing at the Goddess’ Bowl. The headless torso belonging to Sixtus was crucified above. Blood tricked down into the Goddess’ Bowl. Ordogan and Livia plunged their heads in the sacred bowl. In the waters, she closed her eyes, contemplating herself. #emph[I have made it this far. I will not let a deranged Elysian Emperor endanger my crown. Nosrau shall learn that I am not to be trifled with.]
 
 She and Ordogan emerged from the Goddess’ Bowl. Blood splattered on her purple silk garments. "To Victory! Victory!" they spoke in unison.
 
@@ -112,7 +112,7 @@ An Excubitore handed to her The Lance of True Redemption, the famed lance that R
 
 "To Victory! Victory!" roared the army. Dismounted cataphracts with plumed helmets applauded her alongside the Molochian horse archers. The auxiliary palatine guards stood up, pounding their spears against their shields. Trumpets, horns and drums blared throughout the hippodrome. A massive Medean flag with its crimson phoenix was hoisted in the upper stands. Livia exulted in her men’s admiration. She bowed before them.
 
-With her bloody spear, she struck at Alexander’s corpse.
+With her bloody spear, she struck at Sixtus’s corpse.
 
 "Men of the Medean Empire, you have lived through a life of deceit. The creature that came here was a false Goddess. It was but an artificial abomination, a monster that tried to eat me alive and murdered my dear father. Today is the day that her deception ends. Follow me, and you never know deceit again!" said Livia.
 

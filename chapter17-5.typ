@@ -38,7 +38,7 @@ The unpleasant news were that these ruins had become a labyrinth. Majorian's leg
 A man's voice rung through the hall. Boniface's voice. Nix muffled a laugh. Of course. Why had she not thought of it? The Faith had been responsible for this. 
 The Faith who had rid the Known World of Magic now resorted to a Forge for the Goddess knew what. 
 
-"There were three Magi to dispose of. None of our objectives were met," said Alexander's voice. Nix almost lost her balance. The Giant added another degree to her polynomial equation. She had just carved a bloody path through four Magrub Dogas hours earlier. Having to deal with another surprise was undesirable
+"There were three Magi to dispose of. None of our objectives were met," said Sixtus's voice. Nix almost lost her balance. The Giant added another degree to her polynomial equation. She had just carved a bloody path through four Magrub Dogas hours earlier. Having to deal with another surprise was undesirable
 
 "Then we forge more. The Magi are bound to crack under sheer numbers," said Boniface's voice.
 
@@ -60,11 +60,11 @@ Nix ran for the voices' position.
 
 _Stay with me! Stay with me!_ thought Nix.
 
-"The Forge accepts living ingredients. Throw him in," said Alexander.
+"The Forge accepts living ingredients. Throw him in," said Sixtus.
 
 "No, no, no, no, no!" screamed Nix as she barreled her way through the stone corridors and the hordes of imprisoned monsters.
 
-Alexander's command ignited the sound of gears spinning and bellcranks grinding metal. A loud hiss reverberated through the ruins. Nix cursed, turning left, turning right. She had to save Majorian.
+Sixtus's command ignited the sound of gears spinning and bellcranks grinding metal. A loud hiss reverberated through the ruins. Nix cursed, turning left, turning right. She had to save Majorian.
 
 Parabolas of blinding light flashed in the corridor. Majorian's pleas thundered though the dungeon. She stumbled into more and more black ooze, her bare feet 
 landing into the viscous substance. Every step she took revolted her skin. 
@@ -76,7 +76,7 @@ manufactured the sprawling complex of gears, bell cranks, pistons and pumps that
 fueled the Forge. 
 
 Majorian was placed on a tray. Men of the Crucible held it inches away from the Forge's opening. Dry air escaped Nix's lips as she tried to scream for his name. 
-Alexander and Boniface stood before the contraption, the latter's eyes glowing with a child's sense of wonder. Alexander clapped his hands. The Men of the Crucible threw the wailing Majorian into the Forge.
+Sixtus and Boniface stood before the contraption, the latter's eyes glowing with a child's sense of wonder. Sixtus clapped his hands. The Men of the Crucible threw the wailing Majorian into the Forge.
 
 A vertiginous silence ran. Nix fell on her knees. There was no asymptotes to the Faith's cruelty. They would deny Majorian an honorable demise.
 
@@ -91,14 +91,14 @@ Her Majorian and her Baba, stolen by these vile men. Right when she finally acqu
 One by one, she would tear their rib cages and pry out their still beating hearts and send their remains through the Forge. Yes that was a sound plan.
 
 Alas, the Forge would not let her enact it. It hissed anew, emitting orange 
-steam. Metallic screeching tore through the ceiling. The Forge's inner lights flickered between crimson, white and gold. Wide smiles were drawn on Boniface and Alexander's faces.
+steam. Metallic screeching tore through the ceiling. The Forge's inner lights flickered between crimson, white and gold. Wide smiles were drawn on Boniface and Sixtus's faces.
 
 A tall shadow emerged from the Forge. Two still human arms were permanently attached to their visage, now sheathed in antler's horns. Its torso stood on four equine legs. And these eyes, as red as rubies, seemed to be in constant mourning. 
 Phoenix wings sprouted from its back. 
 
 _Majorian?_ thought Nix.
 
-"Welcome back to the world of the living," said Alexander.
+"Welcome back to the world of the living," said Sixtus.
 
 The thing called Majorian sang with a voice as elegant as it was frightening. This time, there was a duality of female and male voices in its vocal cords. 
 Its intonation spoke of confusion and loss. Such was the beauty in the melody that Nix could have wept on the spot. That creature was an unholy miracle, capable of emulating all instruments in the Known World from water organs to harps.
@@ -111,7 +111,7 @@ Its intonation spoke of confusion and loss. Such was the beauty in the melody th
 
 The thing called Majorian made an expression synonymous with terror at the mention of that word. Nix must have imagined it. Magrub Dogas did not have emotions.
 
-Alexander made a sudden turn of his head. Nix had no time to react. Their eyes met.
+Sixtus made a sudden turn of his head. Nix had no time to react. Their eyes met.
 
 "So the Magi comes for their friend. Come little girl, do not be afraid."
 
@@ -126,10 +126,10 @@ _Disgusting,_ she thought.
 
 She advanced slowly, pulverizing any Men of the Crucible who had not soiled themselves. It smelled of blood and defecation. This was a chance to rectify the humiliation they had put her and Baba through eight years ago. 
 
-"Do something!" screamed Boniface to the Giant. To her surprise, Alexander 
+"Do something!" screamed Boniface to the Giant. To her surprise, Sixtus 
 grabbed the Cardinal by the collar and sent him towards Nix's wheel of carnage.
 
-"Finish what you have started," simply said Alexander.
+"Finish what you have started," simply said Sixtus.
 
 She did not bother reflecting on the significance of that action. Her blades cut 
 through Boniface's flesh. The Man in White was no more.
@@ -184,17 +184,17 @@ Its body was stripped of the warmth that once characterized it. Its skin was now
 
 "And you have returned...Are you Magi now?"
 
-A shudder passed through her. She felt a humid breath over her neck. Her eyes slowly turned. It was Alexander. His form towered over hers. She was reminded how his palms were as large as a man's head, how his tired eyes glared at anyone with utmost condescension. There was not a single scratch on his body. Not even his clothes had seen harm. What were his intentions? Were Cardinals not allies? Why had he not helped his compatriot?
+A shudder passed through her. She felt a humid breath over her neck. Her eyes slowly turned. It was Sixtus. His form towered over hers. She was reminded how his palms were as large as a man's head, how his tired eyes glared at anyone with utmost condescension. There was not a single scratch on his body. Not even his clothes had seen harm. What were his intentions? Were Cardinals not allies? Why had he not helped his compatriot?
 
 She did not take any chances. She struck him with the blood blade. His fist connected with her jaw first. She ate dirt and blood.
 
 The Giant stood still, content with simply witnessing her art. She did not like this. The more her gaze was fixated on him, the more every nerve in her body screamed for her to flee this place at once.
 
-"You have played enough, little Magi," said Alexander as he cracked his knuckles.
+"You have played enough, little Magi," said Sixtus as he cracked his knuckles.
 Only then did she see the tattoos depicting iconolatry of the Age of Magic. 
 Only then did she realize how irrational it was to come here without Claradore.
 
-Light poured from his tattoos. The earth growled beneath her. Alexander's mouth uttered cants of a bygone era in the Forgotten Tongue. Two dragonheads unfolded from thin air. The Elemental Gnosis, the very first of the Magi's magical tomes, destroyed by the Faith a millennium ago. Threads of flames titled towards her longitudinal axis revolved around the Giant. Nix swore loudly. Her legs did not want to move. The fire redoubled in intensity as it swirled around Alexander's colossal stature. The Giant looked like a god bathing in the sun.
+Light poured from his tattoos. The earth growled beneath her. Sixtus's mouth uttered cants of a bygone era in the Forgotten Tongue. Two dragonheads unfolded from thin air. The Elemental Gnosis, the very first of the Magi's magical tomes, destroyed by the Faith a millennium ago. Threads of flames titled towards her longitudinal axis revolved around the Giant. Nix swore loudly. Her legs did not want to move. The fire redoubled in intensity as it swirled around Sixtus's colossal stature. The Giant looked like a god bathing in the sun.
 
 _I cannot prevail over that_ thought Nix.
 

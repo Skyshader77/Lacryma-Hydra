@@ -1,6 +1,6 @@
-The Cardinal Alexander stormed the court with his Magrub Dogas. Today was the day the Known World reckoned with the return of magic. Courtiers and noblewomen hid behind the columns. The Excubitores raised their lances in front of her throne, brown liquid leaking between their legs. The creatures howled, clawing at the pillars. They perched themselves atop chandeliers, drooling and hissing at any human below. 
+The Cardinal Sixtus stormed the court with his Magrub Dogas. Today was the day the Known World reckoned with the return of magic. Courtiers and noblewomen hid behind the columns. The Excubitores raised their lances in front of her throne, brown liquid leaking between their legs. The creatures howled, clawing at the pillars. They perched themselves atop chandeliers, drooling and hissing at any human below. 
 
-A cacophony of voices resonated through the room. Children screamed. Ralens the Younger went in front of her, brandishing his ceremonial dagger. Livia was unfazed by the historic event unfolding before her eyes. She was more perplexed about Alexander's decision to reveal the monsters to Thanatopolis' court. What did the Giant hope to achieve in bringing his collection of abominations?
+A cacophony of voices resonated through the room. Children screamed. Ralens the Younger went in front of her, brandishing his ceremonial dagger. Livia was unfazed by the historic event unfolding before her eyes. She was more perplexed about Sixtus's decision to reveal the monsters to Thanatopolis' court. What did the Giant hope to achieve in bringing his collection of abominations?
 
 Behind the Giant, Majorian sang a beastly song in the Forgotten Tongue. It spoke of a path of no return, a clash of ancient and current civilizations. It was silk wrapped around thunder. Men clung to their knees, reciting the Gospel's verses, 
 their faces paralyzed by cramps as if the world was ending.
@@ -8,13 +8,13 @@ The ordinary man now had to contend with the impossibility of the
 return of magic. 
 
 The Magrub Dogas defecated on the statues of Emperor Charov and Empress Zenobia.
-Alexander made a solemn march towards her seat. He shoved asides any who dared to intrude in his path. A beautiful scar now ran from his forehead to his right cheek. 
+Sixtus made a solemn march towards her seat. He shoved asides any who dared to intrude in his path. A beautiful scar now ran from his forehead to his right cheek. 
 
 He stopped five feet away from the throne. 
 
 "Where are the Magi?" he roared.
 
-Livia paused to evaluate her options. She could have answered that one of the Magi was standing right before Alexander. The important information that Alexander revealed was that he could not locate her nor Claradore. She had no time to breathe a sigh of relief. Ralens kept his sword pointed at the Cardinal.
+Livia paused to evaluate her options. She could have answered that one of the Magi was standing right before Sixtus. The important information that Sixtus revealed was that he could not locate her nor Claradore. She had no time to breathe a sigh of relief. Ralens kept his sword pointed at the Cardinal.
 His arms and legs trembled. He had yet to know it, but he was living though a 
 historical moment.
 
@@ -28,17 +28,17 @@ _So he bluffs,_ thought Livia.
 
 "The Magi have returned! The-The-The Apocalypse! It is upon us!" yelled an aristocrat. He slit his throat with a dagger. A pandemic of terrorized faces spread through eunuchs, handmaidens and Excubitores alike. The last thing Livia wanted was for a stampede to erupt in the Palace Complex. The Magrub Dogas would revel in this opportunity to savor human guts. The sole advantage those monsters provided at this moment was they kept discipline with fear.
 
-"Silence! All of you! Thirty days...I give you thirty days. You and your armies will scour this rat infested metropolis for those Magi. Once my terms have expired, the Magrub Dogas will put this city to the torch," said Alexander.
+"Silence! All of you! Thirty days...I give you thirty days. You and your armies will scour this rat infested metropolis for those Magi. Once my terms have expired, the Magrub Dogas will put this city to the torch," said Sixtus.
 
 "Please, Cardinal, we truly do not comprehend what you are asking of us," pleaded Ralens the Younger. A wetness ran between his legs.
 
-"Do you believe a Magi fears you and your toy soldiers," said Alexander. He was wrong. The nerve. Giants had never been considered Magis.
+"Do you believe a Magi fears you and your toy soldiers," said Sixtus. He was wrong. The nerve. Giants had never been considered Magis.
 
-Alexander reached forwards, surprising her brother with his otherworldly agility. He lifted Ralens the Younger's head with his palm. The Emperor yelped, dropping his sword and flailing his legs in the air. The court gasped. The Excubitores surged, only to be blocked by Magrub Dogas. Livia had to think fast. 
+Sixtus reached forwards, surprising her brother with his otherworldly agility. He lifted Ralens the Younger's head with his palm. The Emperor yelped, dropping his sword and flailing his legs in the air. The court gasped. The Excubitores surged, only to be blocked by Magrub Dogas. Livia had to think fast. 
 
 "We acquiesce your demands, Cardinal. The Magi will be found. Please provide means to identify them," said Livia.
 
-"At last, someone with reason in this primitive state. Magrub Dogas will assist your search. They can smell Magi from two miles away," said Alexander.
+"At last, someone with reason in this primitive state. Magrub Dogas will assist your search. They can smell Magi from two miles away," said Sixtus.
 
 He threw the Emperor as if the boy was a piece of clothing. Nobles yelled out profanities. Livia sprinted to her brother's side. _Please be alive,_ she thought. Blood ran from his temple. A pulse reassured her. Utterly Unforgivable. Death was too kind for this Giant she reminded herself.
 
@@ -46,9 +46,9 @@ This conundrum gave Livia a migraine. Despite wielding the Forge and its Magrub 
 
 The blood leaking from the noble who slit his throat brought her back to the throne room.
 
-"I expect good results from you, Emperor," said Alexander curtly.
+"I expect good results from you, Emperor," said Sixtus curtly.
 
-Alexander turned his back on her. He gestured for the Magrub Dogas to leave the premises. They shrieked and wailed unholy growls before landing on the red carpet and escorting their master to the outside. A suffocating silence gripped the Medean court. Like a play that had broken the fourth dimension, the audience stood aghast awaiting the comedians and performers. There was no protocol, no contingency for this situation.
+Sixtus turned his back on her. He gestured for the Magrub Dogas to leave the premises. They shrieked and wailed unholy growls before landing on the red carpet and escorting their master to the outside. A suffocating silence gripped the Medean court. Like a play that had broken the fourth dimension, the audience stood aghast awaiting the comedians and performers. There was no protocol, no contingency for this situation.
 
 Ralens the Younger opened his eyes.
 
@@ -73,7 +73,7 @@ Then we should answer with our own secrets. Men do fear Magrub Doga but fire, Me
 There was to be no respite for the day. The handmaidens clamored for her presence 
 while she took her bath. The Cardinal they said was offering a spectacle for the populace. Livia shuddered. The last performance the Faith had given to her was at Baba's abode.
 
-Noblewomen, servants had congregated around the balcony's guardrail. Livia could see Alexander's chariot conducting laps on the capital's streets. The chariot was adorned with soaring doves, their feathers were given a golden highlight. Four white stallions bred from the Clovian Domain led the vehicle. The air reeked of incense and burnt candles. A disfigured corpse was attached to the back of the Cardinal's white carriage. _No, no, no,_ thought Livia. Her heart knew whose body served as Alexander's plaything. Her mind denied it. It was too cruel. The body's snow white wings were still visible. 
+Noblewomen, servants had congregated around the balcony's guardrail. Livia could see Sixtus's chariot conducting laps on the capital's streets. The chariot was adorned with soaring doves, their feathers were given a golden highlight. Four white stallions bred from the Clovian Domain led the vehicle. The air reeked of incense and burnt candles. A disfigured corpse was attached to the back of the Cardinal's white carriage. _No, no, no,_ thought Livia. Her heart knew whose body served as Sixtus's plaything. Her mind denied it. It was too cruel. The body's snow white wings were still visible. 
 
 It was Serena's corpse. In their haste, Claradore and Nix had failed to dispose of the body. The court watched the morbid procession run its course through the city. The words MAGI were carved on Serena's scalp. There were no gasps, no screams, no surprise. The Magrub Dogas had already reaped the fruits of shock and awe. Every lap brought more bruises on Serena's battered body. Every lap itched Livia's teary eyes. How can someone preaching about honor and moral righteousness could be devoid of morality? Like with Boniface, hypocrisy was a 
 job requirement for members of the Faith. 
@@ -86,8 +86,8 @@ Superstition was a habit that could not be broken easily. Men and women chose th
 
 _Thirty days,_ she thought while gazing at the ceiling's frescoes depicting the Goddess attaining godhood, a past preference of her old self. It only occurred to her now that none of the idolatry of the Goddess had ever portrayed Serena accurately. The Goddess was shown in all possible ethnicities from the dark skinned Cachalot and Elysians to the brighter skinned Clovians and Rauthengardians.
 
-Thirty days. Some might have claimed that this was an insufficient amount of time to find two Magi. Livia on the other hand believed this timeline to be a critical mistake. Alexander had granted her a valuable resource: time. Time to gather her armies, time to inspect the caches of Medean Fire. It took less than a day for a Medean legion to build a camp. The great Sarvitar had erected a bridge spanning the Melukis River in less than a week. What could she achieve in one month? More. More than her heroes Sarvitar and Zenobia. The common folk believed the Apocalypse to be imminent. Little did they know for whom the Apocalypse tolled. For the Magi or for the Faith?
+Thirty days. Some might have claimed that this was an insufficient amount of time to find two Magi. Livia on the other hand believed this timeline to be a critical mistake. Sixtus had granted her a valuable resource: time. Time to gather her armies, time to inspect the caches of Medean Fire. It took less than a day for a Medean legion to build a camp. The great Sarvitar had erected a bridge spanning the Melukis River in less than a week. What could she achieve in one month? More. More than her heroes Sarvitar and Zenobia. The common folk believed the Apocalypse to be imminent. Little did they know for whom the Apocalypse tolled. For the Magi or for the Faith?
 
-Livia sneered. Alexander had initiated another round of chess, and she had no intention of losing it.
+Livia sneered. Sixtus had initiated another round of chess, and she had no intention of losing it.
 
-Tonight, the denizens of Thanatopolis would pray to the Goddess for deliverance against the Magi. If they had known that the corpse Alexander dragged behind his chariot belonged to the Goddess, the entire would be committing mass suicide. 
+Tonight, the denizens of Thanatopolis would pray to the Goddess for deliverance against the Magi. If they had known that the corpse Sixtus dragged behind his chariot belonged to the Goddess, the entire would be committing mass suicide. 

@@ -318,7 +318,7 @@ embedded in her right leg.
 
 "Where...Where is Majorian?" said Nix.
 
-"There...are...too...many...Alexander...Need...to...kill..."
+"There...are...too...many...Sixtus...Need...to...kill..."
 
 "I do not understand. Where is Majorian?"
 

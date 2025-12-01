@@ -12,7 +12,7 @@ A shadow was plowing through the mist. A small silhouette. It was a man's.
 He had been courteous enough to accept her invitation. This had to be done out of reach of Nix's ears. The poor Phoenix Wing's heart would be sundered in two should she know what would be transpiring here mere miles away from the shores 
 of Thanatopolis. 
 
-More chess pieces had converged at the imperial capital. With the miscreant that was Alexander prowling the streets, Serena did not know if she could keep the facade of being a pawn on the board. The Red Guild and the Faith would soon unsheathe their steel, and she had to decide whether she would reveal herself to the queen. 
+More chess pieces had converged at the imperial capital. With the miscreant that was Sixtus prowling the streets, Serena did not know if she could keep the facade of being a pawn on the board. The Red Guild and the Faith would soon unsheathe their steel, and she had to decide whether she would reveal herself to the queen. 
 
 And so she sang to mourn the last eight years she had spent as Nix's friend. 
 When the man would reach her position, he most certainly would for a dance. Serena did not doubt that she could lead the dance. 
@@ -38,7 +38,7 @@ Serena pointed to a set of eight doves soaring above them. "Your strength is was
 
 "Do not insult my intelligence, you are the one who pulls the strings."
 
-"That was then. Alexander is no friend of mine any longer."
+"That was then. Sixtus is no friend of mine any longer."
 
 "A pathetic lie."
 

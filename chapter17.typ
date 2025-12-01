@@ -35,7 +35,7 @@ Livia's wardrobe, hidden from plain sight.
 
 "What about the second task?" asked Nix.
 
-"I have concerns. The man called Alexander should be feared."
+"I have concerns. The man called Sixtus should be feared."
 
 "Is some manner of Giant?"
 
@@ -131,7 +131,7 @@ source when in truth, denarii always prevailed.
 The Artifice bit an apple with its human lips. "My dear, even Baba could not possibly envision what you have just done. What are you going to do next?"
 
 What was she going to achieve next? The task at hand would be to analyze 
-the daily life of this Alexander. But that would require another skin, one 
+the daily life of this Sixtus. But that would require another skin, one 
 that she would have to pick carefully. Nix has never realized how warm a human body could be. No vessel was equal in this world despite all them being 
 composed of bones, muscles, blood and other liquids. The one carrying Livia's soul 
 commanded blind loyalty and was endowed with all the dresses, stolas, coats and 

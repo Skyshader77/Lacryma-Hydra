@@ -1,5 +1,5 @@
 Livia walked around her room. To think her brother would commit to the 
-unthinkable. The time had not come for him to be a match for Alexander in the magical arts. The Palace Complex had yet to be made aware of his disappearance.
+unthinkable. The time had not come for him to be a match for Sixtus in the magical arts. The Palace Complex had yet to be made aware of his disappearance.
 All the blame would be directed towards the Faith.
 
 She struck the vanity mirror with her fist. Blood leaked from her fingers. It was the same color as the velvet and obsidian dress she was draped in. Livia gobbled 

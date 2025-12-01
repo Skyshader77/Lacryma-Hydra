@@ -124,9 +124,9 @@ Claradore raised an eyebrow in response. Nix never expected the Cardinal to agre
 
 Red Acolytes led Livia and Domitian out of the imperial balcony. Nix would not miss any of them.
 
-"What about Giants, Cardinals," asked Nix. "Us handmaidens are quite impressed by sir Alexander's size."
+"What about Giants, Cardinals," asked Nix. "Us handmaidens are quite impressed by sir Sixtus's size."
 
-"What do you mean, Nix? Sir Alexander is as tall as me," said Majorian.
+"What do you mean, Nix? Sir Sixtus is as tall as me," said Majorian.
 
 Boniface smirked. "So you noticed it..." He approached her. His wrinkled face 
 with its dry lips did not seem as frightening as it did eight years ago. 
@@ -134,9 +134,9 @@ with its dry lips did not seem as frightening as it did eight years ago.
 
 "I believe not, your Holiness. I am just a plain Elysian servant."
 
-"Wise answer. A bit too wise...Sir Alexander is a phenomenal individual. The Faith would be nothing without him. So yes, he is a giant of sorts."
+"Wise answer. A bit too wise...Sir Sixtus is a phenomenal individual. The Faith would be nothing without him. So yes, he is a giant of sorts."
 
-"May I ask why Cardinal Alexander could not join us tonight? Surely he would love celebrating after this turn of events?"
+"May I ask why Cardinal Sixtus could not join us tonight? Surely he would love celebrating after this turn of events?"
 
 "The man is undergoing a pilgrimage at the Exiles' Island. I am sure there will be plenty of opportunities to get acquainted with him."
 
