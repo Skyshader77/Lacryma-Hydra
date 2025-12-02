@@ -85,9 +85,13 @@
 #include "chapter26-5.typ"
 = Chapter 31
 #include "chapter27.typ"
+= Chapter 32
+#include "chapter28.typ"
 = LiviaVsMajorian
 #include "chapter42.typ"
 = Penultimate
 #include "penultimate.typ"
 = Epilogue
 #include "ending.typ"
+= Glossary
+#include "glossary.typ"
