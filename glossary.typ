@@ -10,6 +10,8 @@ Claradore: the leader of the Red Guild
 
 Majorian: an intersex singer
 
+Spartak: Nix's dog
+
 #emph(text(blue)[
   Medean Empire
 ])

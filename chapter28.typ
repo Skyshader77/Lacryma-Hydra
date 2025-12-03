@@ -1,3 +1,30 @@
+She laid down on Claradore's bed. It has always amused Livia how mundane the room was. Claradore's cologne, this musky flagrance that reminded her of wood lingered in the air. 
+Intricate networks of cobwebs ran from one corner to the next. Flies, ladybugs, 
+roaches carcasses littered the webs.  Sandals gifted by the less fortunate pointed towards the exit. 
+
+Eunuchs with spider tattoos loitered around her, pincers in hand.
+
+"This better be as painless as you claim," said Livia.
+
+"My dear, do you still not trust after those eight years?" said Claradore's Artifice.
+
+What she had ordered the Red Guild to perform was a necessary vice. Her body was shared by two entities: one old, one new. While her new self dominated her will, her old self could resurface and derail any carefully thought out plan. It was a weakness that Sextus could exploit should he be made aware of it. Therefore, this risk had to be eliminated.
+
+"Begin," said Livia.
+
+The eunuchs put their hands on her mouth. Her wrists and legs were restrained.
+Livia heard her own breath, shutting her eyelids. She had to be one with her liquefied form. She felt her own blood leaving her brain, aggregating within the heart, stomach and lungs. Soon, Livia no longer heard her own heartbeat. Instead, 
+hidden in the ventricular cavities, she felt tremors rocking her liquefied being.
+It was all quiet. 
+
+Blood surged. It belonged to her vessel. An earthquake shook her hiding place. The body's mouth tried to scream. Her old self now captained the ship she had inherited. Arms and legs flailed. The torso twisted left and right in a frantic manner. _Fight it all you want, you have already lost,_ thought Livia.
+
+Pincers. She felt their hot iron sizzle against the vessel's skin. Her other self 
+wanted to shriek in pain. The ship convulsed. She smelled blood and tears. 
+It would be the last time her old self would command the galley. Under the previous Livia, this ship had almost capsized. Livia was too wise to repeat the same mistakes. 
+
+
+
 Her brother was praying on top of their father's catafalque. Scented candles burned. Incense. It was always incense. In the ceiling, the incomplete fresco 
 of the Goddess' death scrolled from wall to wall. It was intended to depict Serena being cast down from the Heavens by the devilish Cardinals. The anguish and agony were already well painted on Serena's visage. The canvass was only missing Sextus atop, holding a lance that impaled the Goddess.
 
