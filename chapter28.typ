@@ -23,7 +23,37 @@ Pincers. She felt their hot iron sizzle against the vessel's skin. Her other sel
 wanted to shriek in pain. The ship convulsed. She smelled blood and tears. 
 It would be the last time her old self would command the galley. Under the previous Livia, this ship had almost capsized. Livia was too wise to repeat the same mistakes. 
 
+Then it happened. A weight that she had to bear for the past days was lifted.
+A filament of luminous blue ran from her heart. It wiggled incessantly in the hands of the eunuchs who tried to manipulate it. Her other soul. Inch by inch, 
+it was exorcized from her body akin to a parasitic worm. A sense of levity possessed her. She should have done this on the first day. No longer shall another consciousness doubt her intentions.
 
+The other Livia's soul now rested in an eunuch's hands. Livia dismantled her liquefied form, lodging her blood within her vessel's vital organs as she has done before. She soon felt her own toes, her fingers and her arms.
+
+"It is done, my dear. You may now mold her body as you please," said the Artifice.
+
+Livia raised her hand. Her blood vibrated within. All fingers melted. The palm followed. Livia smiled. Who would ever suspect the Empress herself of being a Magi?
+
+" What do you wish to do about her?" said the Artifice. Its reflection could be seen within the depths of the blue light.
+
+"It would be too cruel to have her depart for the Underworld," said Livia.
+
+"She would need a vessel then."
+
+An idea crossed her mind. What if the soul could live in her mother's medallion?
+There would be no risk of losing the other Livia.
+
+"Insert it in the medallion," said Livia.
+
+"This is a rather unprecedented request, my dear. The Red Guild can offer storage.
+There is a limitless supply of amphoras to be used."
+
+The soul glowed with a renewed vigor at that statement.
+
+"She would want to watch how her life unfolds with me at the helm," said Livia.
+
+She opened the locket. The eunuchs poured the soul inside. The other Livia 
+flailed in vain as the Red Guild forced her into her new container. They key was slid inside. A clockwise turn sealed the soul inside its new residence.
+A faint glow emanated from the keyhole.
 
 Her brother was praying on top of their father's catafalque. Scented candles burned. Incense. It was always incense. In the ceiling, the incomplete fresco 
 of the Goddess' death scrolled from wall to wall. It was intended to depict Serena being cast down from the Heavens by the devilish Cardinals. The anguish and agony were already well painted on Serena's visage. The canvass was only missing Sextus atop, holding a lance that impaled the Goddess.
