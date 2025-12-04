@@ -55,6 +55,9 @@ She opened the locket. The eunuchs poured the soul inside. The other Livia
 flailed in vain as the Red Guild forced her into her new container. They key was slid inside. A clockwise turn sealed the soul inside its new residence.
 A faint glow emanated from the keyhole.
 
+With her other self finding a new habitation, Livia made her way through 
+the Palace Complex's halls. Courtiers, eunuchs bowed before her. 
+
 Her brother was praying on top of their father's catafalque. Scented candles burned. Incense. It was always incense. In the ceiling, the incomplete fresco 
 of the Goddess' death scrolled from wall to wall. It was intended to depict Serena being cast down from the Heavens by the devilish Cardinals. The anguish and agony were already well painted on Serena's visage. The canvass was only missing Sextus atop, holding a lance that impaled the Goddess.
 
@@ -92,9 +95,14 @@ between them?
 
 Ralens raised his palm in the air. He closed his eyes. Livia's own eyes spoke lies for his index finger melted. Then the other fingers followed. She yelled profanities. Ralens rushed to cover her mouth. Her arm hair raised itself. Cool sweat trickled down her back. Her heartbeat roared through its ribcage. She felt the warmth of his hand over her lips.
 
+"What in the Goddess' name?" Livia whispered.
+
 "Please...Sister...You are the only one I can trust," said Ralens.
 
 _Another Magi? But he was born a non-Magi. Nothing. Nothing makes sense anymore,_ thought Livia. No, there was only one possibility among many. She had sired him somehow. In the history of the Age of Magic, there were rare occurrences of Magi sharing their gift with others. The manners in which this was achieved were lost to mankind forever but Claradore strongly discouraged it. The fewer Magi we were for now, the less uncertainties we have to cope with, my dear, he had said.
+
+A pragmatic decision would be to eliminate him now. It would be quick and simple.
+But Livia could not help but notice the advantages this transitory situation offered her. Surely the Faith and Sextus also dealt with undefined variables. Who would profit the most from chaos? The orderly Faith bound in tradition or the reborn Magi who were birthed in anarchy?
 
 "How long have you known..." asked Livia, removing his hand from her mouth.
 
@@ -102,7 +110,37 @@ _Another Magi? But he was born a non-Magi. Nothing. Nothing makes sense anymore,
 
 _So did I,_ thought Livia.
 
-Th-This is magic isn't it?" asked Ralens.
-
 She clasped his cheeks with her hands. "Listen to me carefully, from now on, we will exactly as I say. Any deviation from my counsel will lead to both of use being burned at the stake."
+
+He nodded warily.
+
+"Can you confirm you have spoken to no one else about this?" asked Livia.
+
+"I know what the Faith treats those accused of witchcraft. Th-This is magic isn't it?"
+
+"A Purpleborn who became a Maig. You would be the envy of many poets."
+
+"Not if I burn at the pyre."
+
+"You wield both magic, wealth and armies."
+
+"I never asked for any of those."
+
+_The nerve,_ thought Livia. The ultimate prize she has climbed a mountain of skulls to acquire was belittled in such a manner. She could have slapped him.
+But she saw value in harnessing his new talents. They only had a month. Was it sufficient to teach him cants and spells she took years to master? If only Baba could watch her from the Gates of the Underworld. The student has become the master. 
+
+"You fail to understand, do you? That man, Sextus, now has reason to fear you. 
+The Goddess has granted you the power to bury our enemies," said Livia.
+
+"We-We can make him go away? I am only one man!"
+
+"You are wrong. I stand with you as I always have. In fact, we now share something in common, brother."
+
+His eyes widened. 
+
+"Do not tell me..." he stammered.
+
+She went for a hug. Her lips came close to his ears.
+
+"Let me share with you a secret. You are not the only Magi here, brother."
 
