@@ -118,7 +118,7 @@ He nodded warily.
 
 "I know what the Faith treats those accused of witchcraft. Th-This is magic isn't it?"
 
-"A Purpleborn who became a Maig. You would be the envy of many poets."
+"A Purpleborn who became a Magi. You would be the envy of many poets."
 
 "Not if I burn at the pyre."
 

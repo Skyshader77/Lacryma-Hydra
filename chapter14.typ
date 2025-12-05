@@ -1,4 +1,4 @@
-In the history books, it would have taken climbing a mountain of skulls to achieve this. The ability to tame fate had been reserved exclusively to the Goddess and the purple born. To them, it was the Heavens’ mandate to forge a better world for their denizens. 
+In the history books, it would have taken climbing a mountain of skulls to achieve this. The ability to tame fate had been reserved exclusively to the Goddess and the Purpleborn. To them, it was the Heavens’ mandate to forge a better world for their denizens. 
 
 Elysians, Rauthengardians, Cachalots, Medeans, clergymen, courtiers with their varied costumes assembled beneath the imperial throne centered around four fire pots used to clean its dried phoenix feathers. Servants held the plumes with pincers over the brazier, the phoenix’ remains glittering above the flames. 
 
@@ -8,7 +8,7 @@ Frescoes detailing the Empire’s past victories against the Donians planked eve
 Nix had once touched the painted marble, letting her mind travel through time. From Emperor Marro reuniting the Tiarmat and Medean Empires one last time to the desperate struggle against Molochian hordes, the memories of the elders resurfaced through art. They had always succeeded in rocking Nix within her present hammock, singing songs of bravery and treason.
 
 She and Ralens the Younger had rehearsed the procedure multiple times. The Emperor had to learn how to address his subjects at court, commoners and nobles alike. Somehow Claradore thought it wise for Nix to instruct him on that matter.
-Nix had protested that she only served as a mathematics tutor.
+Nix had protested that she had only served as a mathematics tutor up to that point.
 
 "Then you too will learn to navigate the sea of court, my dear," had said Claradore, cryptic as always.
 
@@ -20,7 +20,7 @@ The child stumbled before the two colossal bronze statues of Empress Zenobia and
 
 "I too was impressed like you, little one, by these. Have you seen our collection of statues in the gardens? Emperor Tiarmat wrestling a bull can also help foster your imagination." Nix mused. "How may the crown guide you today, my dear?"
 
-Her hands rested on the throne's right armchair, feeling the soft texture of the thousands of phoenix feathers that constituted the upper layer. The Red Guild always preferred to pull the strings behind the throne and never succumbing to the temptation of sitting on it. While Nix understood the merits of now exposing one to danger, the benefits of being the actual Emperor instead of being the Emperor in name only vastly outweighed the drawbacks. First of all, she could wear all of Livia's sumptuous garments without fear of reprisals. Second of all, there 
+Her hands rested on the throne's right armchair, feeling the soft texture of the thousands of phoenix feathers that constituted the upper layer. The Red Guild always preferred to pull the strings behind the throne and never succumbing to the temptation of sitting on it. While Nix understood the merits of not exposing one to danger, the benefits of being the de jure Emperor instead of being the de facto Emperor vastly outweighed the drawbacks. Foremost, she could wear all of Livia's sumptuous garments without fear of reprisals. Second of all, there 
 was the prestige of making men bow before you. In fact, it was the only position in the Known World where women could have men prostrate themselves before them.
 
 On her right, Ralens wore the imperial diadem, this ensemble of coruscating ruby and purple sapphires. He was enrobed in a purple garb embroidered with flying phoenixes and roaring dragons. Ralens held her hands. His grip was tenuous,
@@ -72,13 +72,13 @@ Majorian caught up to her in the women's latrines.
 
 The limitatei. Three border guards had petitioned the Emperor shortly after her triumph with the farmer's boy. They had made the most ludicrous of claims. Monsters in the Exiles' Island. Resisting the temptation to laugh had proven an ordeal for Nix. It was too much. 
 
-"Your August Majesty, village folk have seem them too! They appear at night, preying on lambs and cows. I have seen the wounds. No wolf could have done that,
+"Your August Majesty, village folk have seen them too! They appear at night, preying on lambs and cows. I have seen the wounds. No wolf could have done that,
 " had said one of the limitatei with a thick Vyrmogothian accent.
 
 Nix had counseled Ralens to dismiss the men. In all likelihood, the limitatei had 
 hallucinated the creatures under a drunken state. Safeguarding the roads of the Empire was after all a dull affair. Report of brigandry had been more than halved since the previous emperor claimed the purple. It was unreasonable to expect the limitatei to abstain from liquor under these conditions.
 
-"Do you not remember when we hid under Livia's bed? The Excubitores have also mentioned the monsters." said Majorian.
+"Do you not remember when we hid under Livia's bed? The Excubitores have also mentioned the monsters," said Majorian.
 
 "There is no need to access every rumor the throne receives. Do you know how many letters and petitions claim that sucking a man's phallus can cure all diseases? 
 You would lose your sanity!"
