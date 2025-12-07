@@ -84,7 +84,25 @@ One by one, her molecules prevailed. Livia had won her vessel in the fairest of 
 Moreover, she had only instructed her opponent for less than a month. The Cants of Yulwoth, the Spells of the Clarans, all of these secrets laid hidden for someone of Ralens' level. If only he had waited. She laughed. There was no pleasure in defeating an amateur.
 
 By the time she sensed her victory was near, Livia disengaged. Ralens' sea was expelled from the battlefield.
-Both of them reverted to their solid form. Her blood blade flirted with his throat. His jaw was bloodied. He panted heavily.
+Both of them reverted to their solid form. 
+
+His determined gaze yearned for more bloodshed. _So be it,_ Livia thought. 
+She ignited a new type of dance, one that revolved around words. 
+Cants pulsed from her lips. Cyclopean octagons appeared above her, shimmering under the candlelight. He sang the songs of the Unborn, conjuring serpent heads.
+Her octagons spat spears of light that crashed with the snakes. The air was pounded by reverberations. His screams were but whimpers of infant sized rats. 
+
+Roaring Thunder. Screaming light. Dragonheads emerged from her octagons. He answered with a ward that produced a shield over his image. Her dragonheads plummeted over his spell. Chairs, tables, iconography were swept away as if they were dust. Crimson incandescence emanated from Livia's eyes. Control. She had all of it.  
+
+He rolled on the floor. Blood was smeared on his forehead. 
+
+"I-I will not be beaten!" he declared.
+
+Such noble words for an amateur. She discharged whips of lightning on his 
+battered body. Ralens the Younger roared in pain every time a bolt electrocuted him. Again and again, she struck, doing this only to make him comprehend that she and him were never meant to be enemies.
+
+The smell of burnt flesh and sorcery polluted the air. He still found the strength to stand up. It was if she saw Nix in the mirror again. Half of his visage now bore the scars of fire. Blisters leaked pus. His skin was caked in black crust, his clothes' fabric melting with organic tissue.
+
+Her blood blade flirted with his throat. His jaw was bloodied. He panted heavily.
 
 "You stole her from me," he pleaded, his voice wavering. Then take me as well. I'm begging you...Just...Just take me too."
 
@@ -97,6 +115,36 @@ Both of them reverted to their solid form. Her blood blade flirted with his thro
 "You're not her," he rasped. His eyes were red-rimmed. "You're nothing but a thief! A lowlife thief wearing her skin! A shadow in stolen flesh!"
 
 "I am not a man of the Faith. I give you mercy to rethink your decision...Brother. You will meditate and come to the conclusion that I have been a better Livia than my old self. Together, we can make this nation taller than it ever was."
+
+She felt her grip on his throat loosen. The sly weasel! He intended to flee. 
+His body turned into liquid. Livia cursed. She yelled songs and enchantments. 
+It was no use. The Emperor's liquid form seeped into the ground.
+
+Her sorcery struck the floor with lances of thunder. They hit hard like an anchor striking the seabed. Stones and pebbles surged from the ground. It was not blood she found. To think he had been as wise as Nix was. 
+
+The battering of the Cloister's Door saw her withdraw her magic. It was the Excubitores. And so she has let her prey escape. It was no error. A ruler had to show mercy lest they be seen as a tyrant.
+
+The Excubitores surged from the door, forming a shieldwall. She unveiled her hidden dagger. They stared at the fallen bodies of their comrades.
+
+"Your August Majesty, what has happened here?" asked the lead Excubitore in the Classical Tongue. 
+
+She sighed in relief and sheathed her steel. 
+
+"It-It was horrible... I could not resist...The Emperor fought valiantly..." She paused. The only logical option for Ralens was to seek other allies. The enemy of my enemy was my friend. He would be naive enough to trust that counsel Nix had imparted him with. _Sextus..._ "The Cardinal Sextus appeared. He took my brother. They...They left for the Exiles' Island," said Livia.
+
+They stared at her dumbfounded. Men were after all simple creatures, she reminded herself. They saw authority and obeyed it. She adored this simplicity.
+They needed a script, and she will provide one for them for the poets, writers and bards to do a vivisection on for the rest of their existence.
+
+"The Emperor is fighting for this country's future in the Exiles' Island. Cardinal Sextus' deadline is imminent. Shall we stand idle while the Emperor sheds his blood for our sake? We are men and women of the Empire. Prepare the dromons! Muster all the Excubitores and Scholae Palatinae we can find! We ride to assist His Grace at once! Let the Known World know we defied the foul Magi on this auspicious day!" said Livia.
+
+A loud bark tore through the Excubitores' cheers. Spartak ran through the door, 
+assailing her with licks.
+
+"I am alive, you oaf!" said Livia.
+
+Livia tied a parchment to Spartak.
+
+"Ride to the Alchemist's Guild and give them this order: light the fire within two hours."
 
 
 
