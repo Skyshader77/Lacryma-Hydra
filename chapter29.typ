@@ -13,18 +13,61 @@ Men sitting down with their swords in their dominant hands or urinating on the p
 
 Livia and Ralens heard innumerable petitions about the unsavory behavior of the Faith's army from squires stealing chickens and lambs to men hunting women in packs. The price of grain and fish had more than quadrupled since the Faith's legions arrived. Search for the Magi they said. All Livia saw were drunken men loitering around the capital's streets.
 
+Thanatopolis was afraid. Cults were forming around the rumor that Sextus would raze the city with his Marghrub Dogas. When the time for battle came, who would actually stand and defend their home? There were 500 000 citizens but among them 150 000 were Faithful. Of the 10 000 Vigiles the city could muster, less than half would not wet themselves on a true battlefield. Livia had gold. Mercenaries were on the table. Yet she was aware of how unreliable these could be.
+
 _Patience. By the end of month, I will have 40 000 men here,_ thought Livia.
 
 Ordogan wheeled his horse. They sashayed among the soldiers who were playing children card games in the Medean camp. 
 
-They found Sextus in his tent sawing a deer's stomach with a blood blade.
-Every innard was meticulously removed from the slain animal.
+They found Sextus in his tent as large as the Medean throneroom, sawing a deer's stomach with a blood blade.
+Every innard was meticulously removed from the slain animal. Bloodstained plates were arrayed on an octogonal table. 
 
 "Your Holiness requested our presence," said Livia.
 
-Sextus opened his giant palm.  An amalgam of crushed bones and feathers could be found inside. What used to be the Artifice's skull laid in a thousand pieces. Livia shrieked, clinging to Ordogan's shoulders. She averted her gaze. There was no true danger. Claradore could just vacate the Artifice and craft a new one.
+Sextus rummaged through the interior of his tent. Scores of books littered the room. Livia picked one in her hands. It was Sextus' handwriting. She did not know the Giant was an avid writer. The prose...Oh the prose was horrid. Metaphors that espoused complexity instead of beauty obstructed every line of text. All of the words were used to elevate the Goddess' beauty. Livia stopped reading at the lines describing Serena's body in great detail. _How nauseating,_ Livia thought.
 
-"W-What is that?" stammered Livia.
+"I did not know you and the Goddess were friends. How did you two meet?" said Livia.
+
+"Friends? A word she used to torture me with from the day she rescued me from my own kin." He looked at her confused eyes. "I was called the Sextus the Small by my own kin. The other Giants...They could all go through the Gates of the Underworld," said Sextus.
+
+"So it is true...The one who taught the Goddess how to wield lightning bolts..."
+
+"Lightning is the creed and the pride of the Giants. My father taught the Goddess how to channel lightning. I have only watched as they danced before me. She was a prize I could never have."
+
+_And she repaid the favor by wiping all of your kind,_ thought Livia.
+
+"It is admirable that you have held your piety in the face of lust, Cardinal."
+
+"There is no honor in restraint, little girl. All of what I have done was in Her name. Has she ever given me recognition? Never! I obeyed without question and molded this world in her image."
+
+"Molded this world?"
+
+His voice was as cold as a spear tip. "The kingdoms of Atika, Norseum, Karaskand and many more...I have crushed them all. The fools thought it plausible to defy godhood. While the Goddess copulated with Regnant the Dragonslayer, I united the Known World in Her name. I bore sins for her so that the world only saw goodness in her."
+
+Ordogan held the pommel of his sword. Livia elbowed him.
+
+"The Magi's babes...The Gospel tells us they all died in the Great Fire of Xephon..." said Ordogan. Livia detected that she was weighting every word of that sentence.
+
+"I shouldered the burden. It was not appropriate for the Goddess to soil her hands."
+
+"Where is the Goddess? Why does she not assist you in this search for the Magi?" asked Livia.
+
+"The Goddess...is at Metarexia..."
+
+The air felt heavier once he has uttered these words. Ordogan and Livia quickly glanced at each other. Another one was now privy to the truth she and Claradore had known forever. Pages will record this conversation and disseminate the contents to the populace.
+
+"I trust you did not summon us to reminisce about your past, Cardinal," said Livia.
+
+Sextus returned to his guests, holding something in his enormous hands.
+
+He opened his giant palm.  An amalgam of crushed bones and feathers could be found inside. What used to be the Artifice's skull laid in a thousand pieces.
+The Aritfice legs still moved. 
+
+"The Magi...Will...Return...," croaked the destroyed Artifice with a disembowed voice.
+
+Livia shrieked, clinging to Ordogan's shoulders. She averted her gaze. There was no true danger. Claradore could just vacate the Artifice and craft a new one.
+
+"W-What in the Goddess' name is that?" stammered Livia.
 
 "An Artifice, your August Majesty. A Magi's soul once resided inside," said 
 Sextus.
@@ -32,6 +75,15 @@ Sextus.
 "What a horrible sight," said Ordogan.
 
 "This is the undeniable proof that the Magi are still loose in this city."
+
+"What more tricks can those Magi produce?" said Livia.
+
+"At this stage, it is fair to assume both of the Magi we seek are on their last legs. The Elysian Magi I have fought was burned from head to toes. She would have had to seek hospice. I have scoured all hospitals. None of them admitted such a patient."
+
+"And the other Magi? The man named Claradore who posed as a healer at our court?
+Have you not engaged him as well?"
+
+"I did."
 
 Ordogan subtly glared at the Cardinal. The longer the Faith and their white tents 
 camped outside Thanatopolis, the further it eroded the prestige of the Medean army. The people must be allowed to think that the crown fears men that have not shed blood in centuries.
