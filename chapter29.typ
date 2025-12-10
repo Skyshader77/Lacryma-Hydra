@@ -36,9 +36,29 @@ Sextus rummaged through the interior of his tent. Scores of books littered the r
 
 "I did not know you and the Goddess were friends. How did you two meet?" said Livia.
 
-"Friends? A word she used to torture me with from the day she rescued me from my own kin." He looked at her confused eyes. "I was called the Sextus the Small by my own kin. The other Giants...They could all go through the Gates of the Underworld," said Sextus.
+"Friends? A word she used to torture me with from the day she rescued me from my own kin." He looked at her confused eyes. "I see. There is no more utility in maintaining this pretense of normality." He snapped his fingers. Mist seemed to condense around his large fingers. The fabric of a fine cage unveiled itself before Livia and Ordogan. It was visible to the naked eyes. Rays of light traversed the thin cage, distorting itself akin to a looking glass. _There lies the secret,_ thought Livia. Such was the art of bending reality to one's will. Sextus traced the contour of the cage with his elongated nail. With a simple touch of his hand, he pushed. The cage shattered quietly. No debris fell.
 
-"So it is true...The one who taught the Goddess how to wield lightning bolts..."
+Ordogan and the Excubitores bellowed screams of horror.
+
+"A-A-A- GIANT!" screamed Ordogan. The Exubitores raised their lances, forming a shield wall.
+
+"Another relic from the Age of Magic greets us it seems," said Livia.
+
+"H-How can you st-stay calm, my love? Stay behind me!"
+
+"We have seen Magi and Magrub Dogas. And now Giants. Nothing surprises me anymore. Tell me, Giant, why have you betrayed your own kind?"
+
+"I was called the Sextus the Small by my own kind. The other Giants had no love for someone lacking in height. Even my own mother had nothing but scorn for me. The Giants. They can all go through the Gates of the Underworld," said Sextus.
+
+"Was your pride that fickle?" asked Livia.
+
+"What do you know about pride, girl? My own kind would have condemned me to a life of servitude if the Goddess had not arrived in my village. I was meant for greater purposes."
+
+"Such as slayer of Magi babes?"
+
+"Mock me all you want, girl. This Empire would not exist if it weren't for me. All nations of the Known World owe me for their success."
+
+"Understandable. So it is true...The one who taught the Goddess how to wield lightning bolts..."
 
 "Lightning is the creed and the pride of the Giants. My father taught the Goddess how to channel lightning. I have only watched as they danced before me. She was a prize I could never have."
 
