@@ -43,6 +43,23 @@ _As loyal as ever. The perfect lapdog,_ thought Livia.
 
 "Rest assured your August Majesty, no harm will come to him. My Bucellarii will escort him on the battlefield."
 
+The more nights they spent together, the more the thought of seeing Ordogan ascend to the throne became palatable to her. The court was troubled by the believed apocalypse. There would be unsavory rumors under normal circumstances. Yet, none questioned her decision to befriend Ordogan. The end of times was coming. What was to stop the Empress from savoring her last days on this earth?
+
+Ordogan would be an ideal partner for the throne. The army cherished him. He would be campaigning for the majority of the year, leaving her free at court. 
+On the other hand, having a junior emperor as a co-ruler was an increasingly difficult task. Ralens the Younger had been easy to mold until he acquired the Gift. She already missed the days she could strap him to a desk and have him sort decrees, petitions, orders and tax reports for her.
+
+Now it seems he took pleasure in honing his magical skills in the city's outskirts, away from prying eyes. Livia had visibly failed to instill in him the fear of being discovered by the Faith. Boys of his age had yet to know the extent 
+of human brutality.
+Even Claradore was not privy on his activities. Her brother never partook in any decisions but questioned all of them once he returned from his errands.
+
+The day he would want to modify her appointments would be the day she would be undone. Ordogan The eunuch Narcissus as Magister Militri. Galla Sulpicia as Magister Sussuri and the eunuch Tribonian as Magister Officiorum.
+
+And then there was the question of marriage. The coming apocalypse precipitated 
+the planning of another imperial wedding. Livia did not blame him. Ralens had made a list of princesses and girls of noble descent and wished for Livia to filter them. But another Empress would only cause more issues at court. Her co-rulership would be threatened. Worse, there could be a civil war and the Empire had no appetite for that while the Faith's monsters surrounded the capital.
+
+Instead, Livia saw the advantages of marrying someone such as Ordogan. Sealing the most respectable general under her thumb would solidify her position. She had the ring Domitian gave to her reforged into a new one. With her as his wife, the man would have no choice but to be a passenger in the ship she was captaining.
+There were to be more difficult decisions to make other than the ones pertaining to Medean Fire. Livia required someone to support her actions unquestioningly. She could even reveal to him that she was a Magi, and he would not dare strike her.
+
 The city would be destroyed in two months. Every day, the populace sang the Faith's hymns outside the streets. Magrub Dogas watched from the roofs. From Ordogan's bedroom, Livia heard their songs. Majorian often accompanied the ensemble with their male and female voices. 
 
 Her hair laid disheveled. The general's cologne lingered on the pillow she was hugging. This mistake she and Ordogan had made now became a habit. It was a good thing. The Magister Militum now had someone to protect from the creatures of the night. What man would not resist the temptation of being a knight in shining armor to rescue a fair maiden? 
