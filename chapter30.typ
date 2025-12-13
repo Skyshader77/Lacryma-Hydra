@@ -30,6 +30,10 @@ He loathed that weapon. A weapon that was untested in combat was worth a mummer'
 
 "And what do you propose we tell the men once all children and women have vacated the city? That they no longer have anything to protect. I have read the history books. The Barbarian King Chrodomer's host fought to the last men when they were backed against the baggage train. Their wives stabbed any man who dared to retreat."
 
+"Do you understand what war is my love? These are monsters we face not men. I have seen men smash the heads of babes on concrete. I have seen our own soldiers hunt women in packs in Elysian cities. The Magrub Dogas' barbarity may yet to put the Donians and the Molochians to shame!"
+
+She smirked "Do you truly believe children and women see the difference between monster and man?"
+
 His face darkened. Of course, there would be no surrendering nor would there be any retreat. Livia tired of fleeing. Never had she come as close as decapitating the Faith. All the resources she gathered were meant to destroy a single entity: the Giant. She has committed 500 000 citizens and 40 000 soldiers to her cause. 
 Should Livia fail, all of their lives would be spent. By tying their fates to her success, she ensured their loyalty and devotion to her plight.
 
@@ -43,6 +47,25 @@ _As loyal as ever. The perfect lapdog,_ thought Livia.
 
 "Rest assured your August Majesty, no harm will come to him. My Bucellarii will escort him on the battlefield."
 
+"Save me the optimism, general. In the advent we prevail over the Faith without an Emperor, what would become of this country?"
+
+"There must be always be an Emperor on the throne of phoenix feathers."
+
+"Then, will you accept it?"
+
+Ordogan fidgeted with his hands. "The Medean Empire will never put a Molochian such as I on the throne. You of all people know that."
+
+"If we triumph over the Faith, it is no an Emperor that will sit on the throne. It is a god."
+
+"You speak strangely, my love."
+
+"Think about it, Ordogan. Sextus is a spawn of the Goddess herself. What would the world think if we were to slay such a mighty beast? We would be able to challenge the Goddess herself."
+
+"Challenge the Goddess?"
+
+"The populace interprets the Apocalypse as a world ending cataclysm. I do not share their sentiment. Apocalypse simply means the end of one world. It is also a synonym for the beginning of another. You and I have seen how our world is puppeteered by relics of the Age of Magic. With Sextus and the Magrub Dogas 
+gone, the world can finally emancipate itself from the shackles of magic and you and I will be seen as the new deities."
+
 The more nights they spent together, the more the thought of seeing Ordogan ascend to the throne became palatable to her. The court was troubled by the believed apocalypse. There would be unsavory rumors under normal circumstances. Yet, none questioned her decision to befriend Ordogan. The end of times was coming. What was to stop the Empress from savoring her last days on this earth?
 
 Ordogan would be an ideal partner for the throne. The army cherished him. He would be campaigning for the majority of the year, leaving her free at court. 
@@ -52,13 +75,15 @@ Now it seems he took pleasure in honing his magical skills in the city's outskir
 of human brutality.
 Even Claradore was not privy on his activities. Her brother never partook in any decisions but questioned all of them once he returned from his errands.
 
-The day he would want to modify her appointments would be the day she would be undone. Ordogan The eunuch Narcissus as Magister Militri. Galla Sulpicia as Magister Sussuri and the eunuch Tribonian as Magister Officiorum.
+The day he would want to modify her appointments would be the day she would be undone. Ordogan The eunuch Narcissus as Magister Militri. Galla Sulpicia as Magister Sussuri and the eunuch Tribonian as Magister Officiorum. The pieces she had wanted were at the exact position she desired them to be.
 
 And then there was the question of marriage. The coming apocalypse precipitated 
 the planning of another imperial wedding. Livia did not blame him. Ralens had made a list of princesses and girls of noble descent and wished for Livia to filter them. But another Empress would only cause more issues at court. Her co-rulership would be threatened. Worse, there could be a civil war and the Empire had no appetite for that while the Faith's monsters surrounded the capital.
 
 Instead, Livia saw the advantages of marrying someone such as Ordogan. Sealing the most respectable general under her thumb would solidify her position. She had the ring Domitian gave to her reforged into a new one. With her as his wife, the man would have no choice but to be a passenger in the ship she was captaining.
 There were to be more difficult decisions to make other than the ones pertaining to Medean Fire. Livia required someone to support her actions unquestioningly. She could even reveal to him that she was a Magi, and he would not dare strike her.
+
+He left her to train the men.
 
 The city would be destroyed in two months. Every day, the populace sang the Faith's hymns outside the streets. Magrub Dogas watched from the roofs. From Ordogan's bedroom, Livia heard their songs. Majorian often accompanied the ensemble with their male and female voices. 
 
@@ -68,11 +93,16 @@ The Artifice flew through the window.
 
 "I did not authorize you to sire another Magi," Claradore said dryly.
 
-"You think I had control over what happened," said Livia.
+"You think I had control over what happened. His powers came suddenly," said Livia.
 
-Its neck snapped. It made a parody of a frown. "It is one thing to create another. You are honing his skills as well! You will draw Sextus' wrath upon us."
+Its neck snapped. It made a parody of a frown. "There must be no more incidents of this kind. It is one thing to create another. You are honing his skills as well! You will draw Sextus' wrath upon us! Restrain your apprentice at once, my dear!"
 
-"Then we will be three Magi to confront him once your body has been reconstituted."
+"The Gatekeeper has loosened our leash. I cannot tighten it without exposing myself as well."
+
+"He plays the vigilante in the countryside. I have seen him fly to the rescue of 
+farmers and limitanei. His powers are crude, unrefined. They lack the passion we both have for our craft."
+
+"Any Magi is better than no Magi. We will be three Magi to confront him once your body has been reconstituted."
 
 "The timeline for that is volatile, my dear."
 
@@ -100,8 +130,30 @@ The Artifice shook his head. "My dear, you do not understand. You stand above a 
 
 Livia slid into her rose gown. "He has repudiated his Faith."
 
-"Furthermore, the more you hone his skills, the more likely he will come to discover the truth about this costume you wear."
+"Has he truly? Faith is not easily discarded, my dear."
 
-"The Faith only expects two Magi. A third one will surely shock them. Let them believe we are far more numerous than they think. It will buy us time. My legions are gathering as you can see. Sextus will find Thanatopolis quite difficult to raze."
+In a sense he was correct. One's upbringing determined one's faith. The Faith would have one believe that all children came into this world as devout believers of the Goddess. Religion was a constant in a mathematical equation for many. 
+Unchangeable, Immutable, unperturbable as dried concrete. However, even concrete could not withstand indefinitely the test of time. Erosion, frost, salt, all could create cracks within the highest quality Sarvitarian roads and bridges.
+For humans, this could materialize in the form of injustice or great suffering. 
+It did not take long for anyone on this world to realize that any deity would never come to their rescue as a knight in shining armor. Praying was never going to be sufficient to find success trough hardship.
+
+This alone should have sufficed to make anyone question their preformed concepts on faith. But men of the Faith could be stubborn before admitting they were wrong.
+The Goddess worked in mysterious ways they would say. It is not an obligation for the Goddess to save all of her followers. All of that logic was invalidated by the fact that the Goddess was revealed to be a mere human, one that could bleed and be slain.
+
+Livia wondered. Did the people of Holy Khigek still maintained their belief when the Sarvitarian Emperor Claudius burned their the Great Temple and scattered their folk throughout the North Sea? For twelve months, the Sarvitarians besieged the holy city of Pardis. When they finally breached its walls, they found the following inscribed by blood: if there is a Goddess, she would have to beg for my forgiveness. Serena of course never apologized to anyone for her failures.
+
+The Artifice's chirps ended her philosophical ramblings.
+
+"Furthermore, the more you hone his skills, the more likely he will come to discover the truth about this costume you wear," said Claradore.
+
+"I wear his sister's skin. No, I am his sister. Even if she discovers the truth. He would not dare strike me."
+
+"Boys of his age can be unpredictable."
+
+"I am the master. He is the disciple."
+
+"The student must never outshine the master. Very good, my dear."
+
+"The Faith only expects two Magi. A third one will surely shock them. Let them believe we are far more numerous than they think. Let them flounder their resources and advantages in doubt. It will buy us time. My legions are gathering as you can see. Sextus will find Thanatopolis quite difficult to raze."
 
 
