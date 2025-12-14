@@ -91,6 +91,8 @@
 #include "chapter29.typ"
 = Chapter 34
 #include "chapter30.typ"
+= Chapter 35
+#include "chapter31.typ"
 = LiviaVsRalens
 #include "chapter41.typ"
 = LiviaVsMajorian
