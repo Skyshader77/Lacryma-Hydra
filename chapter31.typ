@@ -1,4 +1,54 @@
-The grotesque hydra amassed before them. Faces deformed by zealotry and despair leered. Knives flashed. Clubs were raised. In the law of divine right, the populace attributed their misfortunes to the Emperor. They were not wrong, but Livia could not allow them to be right.
+A year had passed since she last stood before Ralens the Elder's catafalque.
+Only a month remained before Sextus would resolve his ultimatum. All of her 40 000
+men had arrived at the capital. Her brother prayed before the coffin, a futile exercise in her opinion. He was dressed in a purple tunic, his crown was deposited on the catafalque.
+
+The mausoleum's dampness clung to her skin. The stench of incense was palpable.
+
+"What would Father have done in this situation, sister?" asked Ralens.
+
+"Surely no better than what we have done," said Livia. 
+
+"I am ready to face Sextus," said Ralens.
+
+"We have already discussed this. On the day of reckoning, our army will form a battle line in front of the Faith's camp. The Alchemist's Guild will provide all of the necessary assistance against the Margrub Dogas."
+
+"No, one more month is too much. Look at our granaries, sister. Within one week, they will be emptied."
+
+"The shipments from Noein will arrive shortly."
+
+"Have you seen their faces? The people glare at us, sister."
+
+All the more reason why coming here was a dangerous endeavor. Grain and fish were requisitioned to feed the Medean and Faith's hosts. The illusion of collaboration costed dearly to the commoner. To them it must have seemed as if both state and religion were willingly starving them. They ignored the complexities of meshing  magic and geopolitics. Within a month, the fruits of Livia and Ordogan's plans would blossom.
+
+Ralens had suggested coming here while wearing commoners' clothes. Livia declined that suggestion. She was now an Empress and would dress like one for the rest of her life.
+
+"Let them glare. We have distributed enough pamphlets blaming this crisis on the Faith," said Livia.
+
+"It is not enough. They are suffering. I see famished women holding babes in their hands," said Ralens.
+
+"One month, brother and all of our fates will be decided by then."
+
+"How are you so certain of victory?"
+
+_The Giant expects magic to be his downfall. In guarding against magical forces, 
+he left himself defenseless against conventional weaponry,_ thought Livia.
+
+"I have calculated all possibilities," said Livia. It was true. She had spent countless nights practicing her impersonation of Sextus. How he thought, how he shat, how he walked, all elements of his character were used to emulate his decision-making. Livia played the role of Sextus while Ordogan led the Medean army
+. War was a game where any enemy would seek to minimize your score while you sought to optimize yours. One could draw a diagram with each of your own decision branching out to a series of your enemy's decision. This would result in a wide tree where all end nodes led to either a Medean victory or annihilation. Values could then be assigned to each node, representing the achieved score. Without enough nodes, all of Sextus' reactions that consisted of reaching the lowest possible utility value were analyzed. 
+
+Therefore, what had been an unknown less than a year ago became a constant. Sextus had granted them six months. Livia and Ordogan had dissected the Giant's mentality. All actions they would undertake on the day of reckoning would result in an outcome that maximized their utility value. There would be no mistakes. 
+
+"There is no such thing as absolute when threading with magic," said Ralens.
+
+"You took Claradore's words out of his mouth. Do you trust me so little?" asked Livia.
+
+"I trust in magic. Mark my words. I will vanquish him sister."
+
+The Excubitores burst through the door. Their lances were soaked in blood.
+
+"Your August Majesty. We must leave now!"
+
+There was a sense of urgency in his voice. Ralens and Livia left through the entrance. Before the mausoleum's steps, a grotesque hydra amassed before them. Faces deformed by zealotry and despair leered. Knives flashed. Clubs were raised. In the law of divine right, the populace attributed their misfortunes to the Emperor. They were not wrong, but Livia could not allow them to be right.
 
 The Excubitores raised their shields. 
 
