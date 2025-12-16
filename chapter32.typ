@@ -69,4 +69,31 @@ Claws marks found their way on the old wooden door. A large crack allowed her ey
 Livia muffled a groan of exasperation. "If it was truly a trap, both of your heads would be found in front of the Palace Complex by now."
 
 The door creaked. She pushed her hand through. The smell of blood and thyme 
-permeated the interior. Ralens laid on the altar. Blood seeped from his thigh and arms. Not fatal thankfully.
+permeated the interior. Fallen chairs, broken windows greeted her eyes. A claw mark, probably Majorian's doing, had ripped the Goddess' face on all frescoes present. Ralens laid on the altar. Blood seeped from his thigh and arms. Not fatal thankfully. A crust of yellow pus had begun to form on the wound
+
+Livia wasted no time in applying her hands on the festering wound. She recited the Cants of Serdonia. Cerulean ellipses emanated from her palms. His blood waltzed, making pirouettes across her fingers. Black fluids escaped the wound.
+Livia let the foul liquid touch the marble floor. His blood was warm in her hands. She pulled every filament of blood as if it was silk. When she could no longer see any black bile within her brother's blood, she allowed the threads to reenter his body.
+
+"L-Livia, you are truly a prodigy," said Ralens.
+
+"The situation has deteriorated for us," said Livia.
+
+"I-I am the Emperor. The men will laid down their arms. O-Ordogan will cease this mummer's farce."
+
+She shook her head. "Ordogan is doing no mummer's farce, brother. The whole world knows you are a Magi. You are well ware what this world does to Magi."
+
+"N-No, no, they must obey me! Magi or not, I am my father's heir! The laws of the Empire apply, notwithstanding Magi."
+
+"Do you think you can undo a millennium of beliefs, brother? The men are conditioned to slay Magi at first sight. Should you want to keep your throne, you would have to slaughter the entire populace, leaving you an Emperor of nothing."
+
+"You must help me then! I-I am no threat to them."
+
+"I have already negotiated on your behalf and this is the result. I, too must keep my magical secrets."
+
+"What have you negotiated?"
+
+"Flee from here. Hide in the underground while I plan our next move. With enough luck, it will be possible to find another boy who shares your face. The Faith will be none the wiser?"
+
+"You have not told him?" hissed Majorian.
+
+"There is nothing to tell, Magrub Doga."
