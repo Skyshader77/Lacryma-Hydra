@@ -41,6 +41,32 @@ The hollow ringing of the mechanical birds brought her back to her conversation.
 
 "We will discuss in due time. We have two Magi to destroy."
 
-Ordogan's soldiers encircled the chapel. 
+Ordogan's soldiers encircled the chapel, forming a shield wall around the complex. A makeshift battery ram had been built. The first speckles of snow fell. A snowflake tingled Livia's cheek. Years ago she had fought Ralens here with snow balls, trying to assail his snow castle with her projectiles. Here he was now besieged again by her forces.
 
-"I will negotiate their surrender," said Livia.
+They said a Magrub Doga joined the former Emperor's company. It could be no other than Majorian. Her stomach rumbled. She has not eaten since noon. Visions of honey laced pastries and sponge cakes invaded her thoughts. Livia had taken the habit of having trays of food delivered to hers or Ordogan's room. To this day, there had been no visible changes in her waist's diameter. Seeing the handmaidens' risible jealousy whenever Livia gobbled meatballs was a treat of its own. 
+
+"The attack will commence momentarily, Livia," said Ordogan.
+
+It was out of the question that further bloodshed would disrupt her appetite.
+
+"There is no need. I will negotiate their surrender. We have shed much blood to day already," said Livia.
+
+His eyes widened. "You intend to confront a Magrub Doga and a Magi alone?"
+
+She turned towards her army and declared: "I am the Empress. If I am not to lead the charge, who would even follow me?"
+
+She sashayed through the ranks of Excubitores and Scholae Palatinae.
+Claws marks found their way on the old wooden door. A large crack allowed her eye through.
+
+"Brother, it is me," said Livia.
+
+"L-Liiva? T-tell the men to go away...I-I am the Emperor," said Ralens.
+
+"Let me in, brother. You must understand the predicament you are in."
+
+"I sense a trap, your Highness," said Majorian's voice.
+
+Livia muffled a groan of exasperation. "If it was truly a trap, both of your heads would be found in front of the Palace Complex by now."
+
+The door creaked. She pushed her hand through. The smell of blood and thyme 
+permeated the interior. Ralens laid on the altar. Blood seeped from his thigh and arms. Not fatal thankfully.
