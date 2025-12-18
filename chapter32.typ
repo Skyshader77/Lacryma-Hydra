@@ -76,7 +76,13 @@ Livia let the foul liquid touch the marble floor. His blood was warm in her hand
 
 "L-Livia, you are truly a prodigy," said Ralens.
 
-"The situation has deteriorated for us," said Livia.
+He stood up rapidly, waving his legs and arms as if his body was never injured.
+Paleness slowly disappeared from his body. She held his wrist. His breathing accelerated, no longer being slow and sickly. The warm smile she has always known greeted her anew.
+Majorian made a sigh of relief.
+
+"It is one less problem to worry about," said Majorian.
+
+Livia released Ralens' wrist. "We are still in the eye of the storm. The situation has deteriorated for us," said Livia.
 
 "I-I am the Emperor. The men will laid down their arms. O-Ordogan will cease this mummer's farce."
 
@@ -86,14 +92,65 @@ She shook her head. "Ordogan is doing no mummer's farce, brother. The whole worl
 
 "Do you think you can undo a millennium of beliefs, brother? The men are conditioned to slay Magi at first sight. Should you want to keep your throne, you would have to slaughter the entire populace, leaving you an Emperor of nothing."
 
-"You must help me then! I-I am no threat to them."
+"You must help me then! I-I am no threat to them. T-tell them!"
 
-"I have already negotiated on your behalf and this is the result. I, too must keep my magical secrets."
+Livia pressed her arms against him. She did not envy his position. Relinquishing one's divine right to rule was also an unpleasant affair. Emperors and Kings clung to the throne like creeping vines to a marble column. The crown is to be worn until death and often death came brutally.
 
-"What have you negotiated?"
+"I have already spoken to Ordogan, brother..."
 
-"Flee from here. Hide in the underground while I plan our next move. With enough luck, it will be possible to find another boy who shares your face. The Faith will be none the wiser?"
+"What have you negotiated?" said Ralens.
 
-"You have not told him?" hissed Majorian.
+She held her breath. "You are to flee from here, never to return. There is only the Unknown World to turn to..."
 
-"There is nothing to tell, Magrub Doga."
+"N-No-No! You jest, sister! You jest!"
+
+"This is the official result of my talks. I however do not intend to send you away. You must hide in the underground while I plan our next move." 
+
+"How are you planning to deal this Sextus? Surely the Cardinal will be fond of leaving a Magi alive," asked Majorian.
+
+"With enough luck, it will be possible to find another boy who shares your face. I will say you were slain while escaping my clutches. The Faith will be none the wiser."
+
+Ralens seized her hand. Eyes filled with despair and incomprehension met her gaze. "No! No! I will not be cast asides, sister! Y-You need me to vanquish Sextus! Help me kill those who challenge our rule! We will triumph over this together as we always have!"
+
+A brave yet foolish speech. He had exposed himself and now threatened to sacrifice her secrecy as well. Unlike her, his discovery of magic had transformed him into the embodiment of egoism. Where was she in his equation? There was no team when all what he had done was to dismiss her counsel. 
+
+"I cannot, as you know, I too must keep my magical secrets," said Livia.
+
+Ralens gritted his teeth. "Liar! I know why you share Ordogan's bed every night. It is the same as with Domitian!"
+
+Livia swallowed her own saliva. The nerve. She slapped him.
+
+"Don't you dare put Ordogan on the same pedestal as that mongrel Domitian! Have you lost the ability to discern honor? You shame both of us at this very moment!"
+
+Ralens cackled with his bloodied lips. She struck again.
+
+"So it is true. Do you think me for a fool? You fornicate with him to have a heir." He brought his bruised face closer to hers."You want Ordogan as an Emperor and you want that boy to sit on my throne. I am disposable to you at this point, sweet sister. It would not even be a surprise if you were the one who summoned this mob."
+
+"Ludicrous. Listen at your words. I have always been your staunchest ally."
+
+Ralens put his hands around her neck. She punched him on his visage. He roared in pain. 
+
+"Hehe, it all ends if I kill you right here, right now, does it not, sweet sister?"
+
+Livia unveiled her blood blade. Her instincts demanded she deal the killing blow.
+Majorian rushed to place themselves between her and her ungrateful brother.
+
+"I will forgive this transgression as you are my brother..." said Livia.
+
+Majorian's face brightened at that last word. "You have still not told him?" hissed Majorian.
+
+"There is nothing to tell, Magrub Doga. You two are to hide in the underground for the time being. I will handle Sextus."
+
+The cracking of wood pealed through their conversation. The head of the battery ram protruded from the severed door. Shields with the crimson phoenix emerged.
+Majorian held Ralens by the arms. They burst through the chapel's upper windows.
+Livia watched as they fled towards uncertainty.
+
+She felt Ordogan's large hand over her shoulder.
+
+"My love...Are you hurt?" said Ordogan.
+
+"N-No. They proved to be...quite amicable. They agreed to leave for the Unknown World," said Livia.
+
+"Can they be trusted, my love?" asked Ordogan.
+
+_No. It is best if I assume them to be malicious actors,_ thought Livia.
