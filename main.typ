@@ -68,36 +68,38 @@
 = Chapter 21
 #include "chapter17.typ"
 = Chapter 22
-#include "chapter17-1.typ"
+#include "chapter17-0.typ"
 = Chapter 23
-#include "chapter17-2.typ"
+#include "chapter17-1.typ"
 = Chapter 24
-#include "chapter17-5.typ"
+#include "chapter17-2.typ"
 = Chapter 25
-#include "chapter18.typ"
+#include "chapter17-5.typ"
 = Chapter 26
-#include "chapter18-5.typ"
+#include "chapter18.typ"
 = Chapter 27
-#include "chapter19.typ"
+#include "chapter18-5.typ"
 = Chapter 28
-#include "chapter25.typ"
+#include "chapter19.typ"
 = Chapter 29
-#include "chapter26.typ"
+#include "chapter25.typ"
 = Chapter 30
-#include "chapter26-5.typ"
+#include "chapter26.typ"
 = Chapter 31
-#include "chapter27.typ"
+#include "chapter26-5.typ"
 = Chapter 32
-#include "chapter27-5.typ"
+#include "chapter27.typ"
 = Chapter 33
-#include "chapter28.typ"
+#include "chapter27-5.typ"
 = Chapter 34
-#include "chapter29.typ"
+#include "chapter28.typ"
 = Chapter 35
-#include "chapter30.typ"
+#include "chapter29.typ"
 = Chapter 36
-#include "chapter31.typ"
+#include "chapter30.typ"
 = Chapter 37
+#include "chapter31.typ"
+= Chapter 38
 #include "chapter32.typ"
 = LiviaVsRalens
 #include "chapter41.typ"
