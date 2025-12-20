@@ -1,3 +1,40 @@
+She had followed the Purpleborn to their chambers in her feline form. The two simpletons fell asleep unaware, allowing her to slip within Domitian's skin. 
+
+A fortnight ago, Livia had been the subject of her experiments. But a question lingered in her mind: how was life as a man? 
+
+She ordered Domitian's eyes open. His body bolted out of the bed, tugging 
+the bed sheet. Livia groaned in protest.
+
+The first thing that Nix noticed were her bulkier legs. In fact, every gesture and step she made displaced more mass. The abundance of hair 
+was also noteworthy. She pulled one strand of hair, contemplating its thickness. Her flesh was also much warmer than a woman's body.
+_Intriguing,_ thought Nix.
+
+She cleared her throat.
+
+"I am Domitian the Dumb. I hide behind Ordogan in the battlefield and steal his glory. I tell the Emperor that I am the bravest of all men. I am only Magister Militum because my fiance is the princess. Rawr! " she said with Domitian's baritone voice. The tone made her guffaw.
+
+She flexed his muscles in front of the vanity mirror in the same manner as Claradore's, imaging Domitian perform the gesture in front of Elysian armies.
+
+"Fear me, foul Elysians, for my non-existent muscles will terrorize you!" said Nix. She heard the bed sheets rustle.
+
+"What in the Goddess' name are you doing, my sunshine?" said Livia.
+
+Nix returned a blank stare. There was only one way to save herself from this situation.
+
+"I need to use the latrines," said Nix with Domitian's voice.
+
+"We have a long day ahead of us tomorrow," said Livia before burying her head under the covers.
+
+Ever since she had seen how easy it was for people such as Claradore to urinate in the woods, she could not help but wonder. Nix headed for the latrines, discarding Domitian's trousers.
+
+To her surprise, Domitian's phallus was notably smaller than Claradore or Majorian's. 
+
+_How do I do this?_ thought Nix. A stream of urine was released from Domitian's penis. The fluid went everywhere but inside the hole. Nix swore with Domitian's voice.
+
+"Silence!" screeched Livia's voice in the room.
+
+
+
 Nix sat in the imperial dining room. She could not take her eyes off the golden-studded round table 
 in the middle of a circular banquet room with fretted ceils of ivory.  
 Water streamed from below. 
@@ -12,8 +49,6 @@ She saw Livia's reflection through the steel fork. Nix had the princess wear a r
 Pastries were brought before her hungry eyes. It was impossible for a handmaiden to receive this abundance of sweets. As Livia, however, the finest cooks in the Empire had to deliver the most delectable cakes Nix has ever tasted. 
 
 She deserved it after all. The ingredients for the vial she had deposited in the Faith's well were ordered from apothecaries using Domitian's signet. There was no world in which she would allow the Faith and the Purpleborn to unite against the Red Guild.
-
-She had followed the Purpleborn to their chambers in her feline form. The two simpletons fell asleep unaware, allowing her to slip within Livia's skin. 
 
 Nix snapped her fingers. Lute players began reciting war ballads. 
 Bronze balls rumbled from the depths of the imposing structure. 
