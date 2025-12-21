@@ -40,7 +40,23 @@ _How do I do this?_ thought Nix. A stream of urine was released from Domitian's 
 
 "Silence!" screeched Livia's voice in the room.
 
-As much as Domitian's form intrigued her, Nix assessed that it lacked warmth. Her center of gravity had been displaced. Every movement required an adaptation. Furthermore, the court did not gaze nor swoon at Domitian the same way as they did for Livia. She could not make a man's body wear Livia's crimson and onyx dress. Armor conveyed fear and intimidation, but purple dresses exuded beauty and prestige. Why be a man when you can make them do your bidding through a crown?
+As much as Domitian's form intrigued her, Nix assessed that it lacked warmth. Her center of gravity had been displaced. Every movement required an adaptation. 
+Every step she took was a struggle to maintain her balance. Nix tried stretching her back forwards. With her own body, she could easily reach her toes with her fingers. As Domitian, a searing sensation consumed her back when she tried to do the same. It seemed as if Domitian's spinal chord would explode if she attempted to touch the floor.
+
+There were more practical questions. How would she wield a lance and a shield? There was no hiding in the shadows when one became a Magister Militum. One was expected to lead the men on the battlefield in order to be rewarded with nude marble statues of themselves in the streets of the imperial capital. At least that was how the Sarvitarians viewed the generals of old.
+
+Then there was the option of wearing the actual Emperor's body. What was the advantage of being an Emperor over an Empress? The Sarvitarian and Medean Empires forbade women from sitting alone on the throne ever since Empress Zenobia sacked the Holy City of Mizrakenaz and stuffed High Cardinal Pius' genitals in his mouth. The Empire required an emperor. The Senate had codified this absurd requirement. It was utmost ingratitude towards the service of the brave women who helped edify this empire.
+
+In practice, empresses possessed a similar level of agency as their male counterparts. Nix remembered how the Empress Lupicina held sway over Ralens the Elder before her exile. No decision was taken without her consent. Thanatopolis also remembered that it was Empress Alianne who saved the city from the Molochian hordes by mobilizing thousands of citizens to repair in the fortifications in the wake of the largest earthquake. Yet it was her consort Emperor Charov whom they built marble statues and for whose honor they dedicated libraries to.
+
+But the unenviable downsides were evident. The wide majority of Sarvitarian Emperors met a violent death. Nix would probably not fancy looking behind her shoulder at every turn for hidden blades, nor would she risk being tortured by mutinous soldiers. Empresses at least faced the dignity of exile in a convent. Such was the benefits of being the shadow behind the throne. 
+
+She understood why Claradore relinquished the crown at Ralens the Elder's funeral.
+Being the public face of discontent was a far too risky endeavor. Should the court or the populace's anger reach riotous proportions, Claradore could always put his eggs in another basket while the current Emperor be thrown to the wolves of public disapproval. Of course, the Red Guild disliked risk. The role of the Empress provided the perfect balance between safety and dominion over the Medean Empire.
+
+Furthermore, the court did not gaze nor swoon at Domitian the same way as they did for Livia. Rarely did anyone fawn over Domitian's unimpressive physique until his engagement with Livia. This was insufficient for Nix. The mark of success was having the entire court ogle you with green faces. Being a Purpleborn meant that everyone wanted to trade places with you.
+
+Nix glanced at Livia on the bed. The princess snored. Nix could not make a man's body wear Livia's crimson and onyx dress. Armor conveyed fear and intimidation, but purple dresses exuded beauty and prestige. Why be a man when you can make them do your bidding through a crown? The decision was thus simple.
 
 She made Domitian's body rejoin his lover in bed. His lips met with Livia's.
 Nix felt herself enter Livia's mouth.
@@ -107,3 +123,19 @@ Nix frowned. "I am simply famished."
 "Then he is a fool. You have tasted what it means to live as Purpleborn. Such things take root in the soul. I have watched it happen before. The flavor of power, true power, corrupts all who sup from that cup. You think yourself above it. You are not. And I do not believe you mean to surrender her body, Nix. Not anymore."
 
 "You bore me with philosophy, Serena. I will vacate this body after finishing my cake."
+
+"You are an execrable liar, your Highness. You have been thinking on it, have you not?"
+
+Nix rolled Livia's eyes.
+
+"What do you accuse me of? I have done nothing!"
+
+"How will you wield this borrowed flesh? To issue commands you would never have given in your own skin? To deceive your betrothed in his bed? Do you comprehend what it will be like when she wakes with no memory of what her body has done? The horror of being made a puppet in one's own skin? I would not wish such a fate upon my bitterest enemy. There is a reason the Magi made this sorcery punishable by death. The theft of one's very self was deemed the vilest of all transgressions."
+
+"You worry too much. I am quite the honorable person."
+
+"Let us pray that is so, Your August Majesty."
+
+Serena vacated the dining room, allow Nix to savor the pastries arrayed before her. She found solace in having cranberries and sugary flour touch her borrowed tongue. It was never fair. The Purpleborn could eat as many treats as they desired. They could win the hearts of any lover they set their eyes on.
+
+What was her friend thinking? Surely Serena did not find it believable that Nix would fornicate with Domitian of all people with Livia's body. The brutish man was as revolting as a plague rat. Ordogan or Majorian on the other hand...No, that question was not meant to be answered tonight.
