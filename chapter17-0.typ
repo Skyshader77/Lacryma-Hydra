@@ -14,6 +14,13 @@ She cleared her throat.
 "I am Domitian the Dumb. I hide behind Ordogan in the battlefield and steal his glory. I tell the Emperor that I am the bravest of all men. I am only Magister Militum because my fiance is the princess. Rawr! " she said with Domitian's baritone voice. The tone made her guffaw.
 
 She flexed his muscles in front of the vanity mirror in the same manner as Claradore's, imaging Domitian perform the gesture in front of Elysian armies.
+All she got in return was a lump of flesh masquerading as a biceps. It was risible. Her laughter rang through the room. Livia rolled in the bed in frustration.
+The beard. How men managed to eat without having breadcrumbs infiltrate their facial hair was beyond her. Nix stroked Domitian's beard. She admitted that it was well maintained yet she could not help but believe that Domitian let his facial hair grow only because people commented on his childish visage.
+
+_What else is there to do as a man?_ thought Nix.
+
+She must lift a heavy object. Settling for the desk containing Livia's arsenal,
+Nix put Domitian's arms to good use. She ordered his arms under the desk. Veins bulged. She grunted. Again and again. Domitian's arms ached. The desk did not move an inch. How disappointing. Nix should not be surprised. Disappointment characterized Domitian's life.
 
 "Fear me, foul Elysians, for my non-existent muscles will terrorize you!" said Nix. She heard the bed sheets rustle.
 
@@ -21,21 +28,24 @@ She flexed his muscles in front of the vanity mirror in the same manner as Clara
 
 Nix returned a blank stare. There was only one way to save herself from this situation.
 
-"I need to use the latrines," said Nix with Domitian's voice.
+"I needed to use the latrines," said Nix with Domitian's voice.
 
-"We have a long day ahead of us tomorrow," said Livia before burying her head under the covers.
+"Be quick! Return to sleep! We have a long day ahead of us tomorrow," said Livia before burying her head under the covers.
 
 Ever since she had seen how easy it was for people such as Claradore to urinate in the woods, she could not help but wonder. Nix headed for the latrines, discarding Domitian's trousers.
 
-To her surprise, Domitian's phallus was notably smaller than Claradore or Majorian's. 
+To her surprise, Domitian's phallus was notably smaller than Claradore or Majorian's. How Livia could find delight in this was an absolute riddle.
 
-_How do I do this?_ thought Nix. A stream of urine was released from Domitian's penis. The fluid went everywhere but inside the hole. Nix swore with Domitian's voice.
+_How do I do this?_ thought Nix. A stream of urine was released from Domitian's penis. The fluid went everywhere but inside the hole. Some even leaked on her leg. It was only that Nix realized that men were supposed to aim. Nix swore with Domitian's voice.
 
 "Silence!" screeched Livia's voice in the room.
 
+As much as Domitian's form intrigued her, Nix assessed that it lacked warmth. Her center of gravity had been displaced. Every movement required an adaptation. Furthermore, the court did not gaze nor swoon at Domitian the same way as they did for Livia. She could not make a man's body wear Livia's crimson and onyx dress. Armor conveyed fear and intimidation, but purple dresses exuded beauty and prestige. Why be a man when you can make them do your bidding through a crown?
 
+She made Domitian's body rejoin his lover in bed. His lips met with Livia's.
+Nix felt herself enter Livia's mouth.
 
-Nix sat in the imperial dining room. She could not take her eyes off the golden-studded round table 
+Two hours later, Nix sat in the imperial dining room. She could not take her eyes off the golden-studded round table 
 in the middle of a circular banquet room with fretted ceils of ivory.  
 Water streamed from below. 
 Cogs and wheels sang with the gushing fluid brought from Charov's Aqueduct, 
