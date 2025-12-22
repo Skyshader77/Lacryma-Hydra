@@ -75,3 +75,30 @@ Its jugular was finally visible. The veins flowed brightly. One stroke and it wo
 
 A howl pealed through their conversation. Livia released her hold over her hidden dagger. She swore quietly. Livia and Majorian left the hedgerow.
 She covered her mouth. Two Ralens stood before her, one made of blood, the other made of flesh and bones.
+
+"Magnificent! What a sublime demonstration!" said Claradore's Artifice.
+
+Livia applauded. The past weeks have seen him learn spell after spell with terrifying speed. Oh to be so young again when every new cant was tantamount to discovering fire. The accomplishment of casting for the first time was unmatched in terms of satisfaction. At her ripe old age, Livia had to settle for the satisfaction of perfection. It was not the first of times that wowed her but the ability to use magic as if it was blinking an eye. It was no easy hurdle to settle in the pleasure of experience.
+
+"Is that jealousy I sense, sister?" asked Ralens with a smirk.
+
+"On the contrary, it is reassuring to have two Magi one can rely on," said Livia.
+
+"Two Magi will not be required to fight Sextus at this rate. Watch,"  His throat 
+reddened. A crimson glow emanated from it. His face was crisped in intense concentration. The surrounding air seemed hotter. In an instant, he discharged fire from his throat. Plumes of smoke erupted from his mouth. "I am a dragon!" he continued.
+
+"You idiot! You are revealing our presence to the Known World!" screamed Livia.
+
+"Rest assured, my dear. We can also explain this with alchemy," said Claradore.
+
+_Since when have you joined forces with him,_ thought Livia.
+
+"Would you like a duel, sister?" asked Ralens.
+
+She weighted her options. While it was true that the gap between both of them had narrowed, his proficiency in battle was still only theoretical. Should it become practical, this would greatly complicate her existence. Livia had always prided herself in being the first Magi born since the Age of Magic. The arrival of another Magi denied her that special status, that place in Claradore's institution. What if Ralens would surpass her? Livia hoped that Claradore would see the value in redundancy. But if magic followed the rules of court, then that meant that there could never be more than one Emperor at court. The Magi would devolve into internal struggles.
+
+A second breath of fire brought her back to the courtyard. Claradore was smiling vividly at the Emperor.
+
+"I decline. There are much edicts to be drafted tonight," said Livia.
+
+Claradore may have been right. Siring another Magi was a toss of a coin. Heads, you gain a valuable ally. Tails, you birthed your own destroyer.
