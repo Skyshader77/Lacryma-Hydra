@@ -1,3 +1,39 @@
+Every other day of the week, Ralens and Livia would sneak out of the windows of their chambers for a stroll in the deserted courtyard. There they would indulge in the practice of the magical arts. Blood blade met blood blade. Livia enjoyed finding a new dance partner. He may lack Claradore's experience and Serena's finesse, but any wine was better than no wine.
+
+The clash of blood punctuated the night. His steps were uneven and unsure. 
+She tried to teach him confidence and conviction. There were only two results from her teachings. One, either he would learn the spell at a staggering rate and thus boast his new aptitudes in an excessive manner in front of both Livia and Claradore. They would then move on to a more difficult spell where he would stumble and wallow in his perceived inadequateness. Second, there was the question of spells where he would be left with his mouth agape upon hearing the instructions. It would then take upwards of twenty times to acquire the skill.
+
+"I tire of blood blades, sister," said Ralens. His blade grated against hers. 
+She tripped his leg. He fell, causing her blade to flirt with his throat.
+
+"You have yet to defeat me once with that weapon. Claradore had not taught me another spell until I could down him," said Livia.
+
+"I have seen you separating yourself in two. Claradore was willing to teach me."
+
+"Then, ask him the next time you see him."
+
+Magic was a skill that required time and patience to master. Even the Magi which were eighty summers were still mastering spells on their deathbed according to Claradore.
+
+"The Goddess knows when the Artifice will reappear."
+
+"You summoned me, my dear children?" said Claradore's voice. The Artifice flapped its wings, landing on a crag.
+
+He had proven surprisingly calm when first setting sight on an Artifice. Every member of the Red Guild fainted when they first witnessed its form. Ralens spent two hours patting the human head and trying to disassemble the creature much to Claradore's protests.
+
+"Livia told me you can teach how to split myself into two halves," said Ralens.
+
+Livia smiled. She had already anticipated his response. She cleared her throat.
+
+"My dear student, splitting one in two equal halves is a much arduous concept to grasp...One must first be at ease with the art of liquefying oneself which I am sure you have yet to perfect, my young apprentice," Livia started, mimicking Claradore's voice. Ralens rolled on the floor, laughing.
+
+"My dear, your imitation of my voice is lacking. If your August Majesty is so curious about this advanced concept, it would be my pleasure to introduce you to it," said Claradore.
+
+"He has yet to master blood blades," said Livia.
+
+"My dear, with Sextus' axe looming over our heads, time is a luxury we do not have."
+
+She felt a shadow fly above. Amber eyes met hers. The shadow landed in the hedgerow. She excused herself.
+
 Majorian emerged from the darkness. She did not expect it to return after their last argument. But logic dictated otherwise. Where else would Majorian go? Sextus was no friend of theirs, and they would be lynched at any human settlement.
 
 "My last words to you were hasty," said Majorian in the Classical Tongue. It chose a female voice for this first sentence.
