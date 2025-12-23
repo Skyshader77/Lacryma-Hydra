@@ -86,22 +86,24 @@
 = Chapter 30
 #include "chapter26.typ"
 = Chapter 31
-#include "chapter26-5.typ"
+#include "chapter26-1.typ"
 = Chapter 32
-#include "chapter27.typ"
+#include "chapter26-5.typ"
 = Chapter 33
-#include "chapter27-5.typ"
+#include "chapter27.typ"
 = Chapter 34
-#include "chapter28.typ"
+#include "chapter27-5.typ"
 = Chapter 35
-#include "chapter28-5.typ"
+#include "chapter28.typ"
 = Chapter 36
-#include "chapter29.typ"
+#include "chapter28-5.typ"
 = Chapter 37
-#include "chapter30.typ"
+#include "chapter29.typ"
 = Chapter 38
-#include "chapter31.typ"
+#include "chapter30.typ"
 = Chapter 39
+#include "chapter31.typ"
+= Chapter 40
 #include "chapter32.typ"
 = LiviaVsRalens
 #include "chapter41.typ"
