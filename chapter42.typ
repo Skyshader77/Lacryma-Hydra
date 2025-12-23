@@ -161,3 +161,28 @@ said Livia.
 
 Ordogan and the Excubitores kept dealing blow after blow. 
 She saw an opening amidst their movements constrained by their heavy armor. Livia side stepped towards Majorian, inserting her blade into their throat. There was no resistance, only blood. The thing called Majorian dropped on the mosaic floor. It gargled blood. Crawling on the floor, its hands tried to reach for Livia. It repeated her name over and over. Ordogan impaled its head with his spear.
+
+It was not Majorian, it was a monster with Majorian's voice as it has always been.
+
+"Are you hurt, my love?" asked Ordogan.
+
+"I am not..." She pointed at the cadaver. "Burn it. Burn it all. What a horrendous sight," said Livia.
+
+A deafening detonation rang in the room. Glass shattered. Ordogan pressed his weight on her back. Her arsenal of cosmetics was toppled. The walls shook. 
+She felt Ordogan's breath on her nape. Tremor after tremor assailed the room. 
+Perfume bottles rolled on the marble floor. She shielded her ears from their infernal clattering. The room smelled of everything from jasmine, roses, lemons and rosemary. Livia did not envy the handmaiden who will have the pleasure of mopping the mess.
+
+They stood on the ground for ten minutes after the last tremor. The smell of fallen perfumes was replaced by the sulfur and saltpeter. _It is done,_ thought Livia.
+
+"What has transpired?" asked Livia.
+
+An Excubitore went before the windows. He let out a litany of expletives.
+
+"Your August Majesty! The Exiles' Island...It is burning!"
+
+"It smells of Medean Fire. The alchemists! Whose order were they obeying?" said Ordogan.
+
+"They were my orders," said Livia.
+
+Livia reached for the window. Black panaches of smoke erupted from the Exiles' Island. One would have thought an active volcano had awakened.  It was over. Victory was hers.
+
